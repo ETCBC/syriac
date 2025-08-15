@@ -2,12 +2,11 @@
 @compiler=Martijn Naaijer
 @description=Name of a book
 @name=Syriac Corpus
-@purpose=exposition
-@source=Various sacred texts
+@source=ETCBC Syriac Corpus
 @valueType=str
 @version=0.1
 @writtenBy=Text-Fabric
-@dateWritten=2025-08-15T12:24:43+00:00Z
+@dateWritten=2025-08-15T12:44:06+00:00Z
 
 204134	Genesis
 Exodus

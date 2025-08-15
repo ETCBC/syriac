@@ -2,12 +2,11 @@
 @compiler=Martijn Naaijer
 @description=Lexical set of a word
 @name=Syriac Corpus
-@purpose=exposition
-@source=Various sacred texts
+@source=ETCBC Syriac Corpus
 @valueType=str
 @version=0.1
 @writtenBy=Text-Fabric
-@dateWritten=2025-08-15T12:24:45+00:00Z
+@dateWritten=2025-08-15T12:44:08+00:00Z
 
 11	vbex
 17	pcon

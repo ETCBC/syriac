@@ -1,12 +1,11 @@
 @edge
 @compiler=Martijn Naaijer
 @name=Syriac Corpus
-@purpose=exposition
-@source=Various sacred texts
+@source=ETCBC Syriac Corpus
 @valueType=str
 @version=0.1
 @writtenBy=Text-Fabric
-@dateWritten=2025-08-15T12:24:47+00:00Z
+@dateWritten=2025-08-15T12:44:09+00:00Z
 
 204134	1-32773
 32774-59106

@@ -2,12 +2,11 @@
 @compiler=Martijn Naaijer
 @description=English gloss, not intended to be used for translation purposes
 @name=Syriac Corpus
-@purpose=exposition
-@source=Various sacred texts
+@source=ETCBC Syriac Corpus
 @valueType=str
 @version=0.1
 @writtenBy=Text-Fabric
-@dateWritten=2025-08-15T12:24:45+00:00Z
+@dateWritten=2025-08-15T12:44:07+00:00Z
 
 in
 chief part, beginning, origin
