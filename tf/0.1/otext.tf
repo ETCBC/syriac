@@ -7,5 +7,5 @@
 @source=ETCBC Syriac Corpus
 @version=0.1
 @writtenBy=Text-Fabric
-@dateWritten=2025-08-15T13:40:27+00:00Z
+@dateWritten=2025-08-15T13:49:52+00:00Z
 
