@@ -3,12 +3,11 @@ This is the Text-Fabric dataset of the ETCBC database of Syriac literature. It i
 
 The dataset contains the following texts:
 Peshitta: Genesis, Exodus, Deuteronomy, Judges, 1 and 2 Kings, Jonah, Psalms 1-30
+PsH
 Sirach
 The Book of the Laws of the Countries
 OrManA
 OrManB
-PsH
-BLC
 Eprx
 ESNJ
 
