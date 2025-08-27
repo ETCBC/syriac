@@ -1,5 +1,5 @@
 # The ETCBC Syriac Corpus
-This is the Text-Fabric dataset of the ETCBC database of Syriac literature. It is the result of a collaboration of the **ETCBC** and the **CACCHT** project (Creating Annotated Corpora of Classical Hebrew Texts).
+This is the Text-Fabric dataset of the ETCBC database of Syriac literature. It is the result of a collaboration of the [**ETCBC**](https://etcbc.nl) and the [**CACCHT**](https://github.com/CACCHT) project (Creating Annotated Corpora of Classical Hebrew Texts).
 
 ## Texts
 The dataset contains the following texts:
