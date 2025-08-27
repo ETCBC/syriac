@@ -24,9 +24,13 @@ The following people contributed to the dataset:
 - Dirk Bakker
 - Gegham Bdoyan
 - Matthias Benabdellah
+- Mignon van Bokhoven
+- Hans Rutger Bosker
 - Logan Copley
 - Janet Dyk
+- Ariel Gutman
 - Piotr Jutkiewicz
 - Willem van Peursen
 - Constantijn Sikkel
 - Umut Var
+- Geert Jan Veldman
