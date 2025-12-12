@@ -6,7 +6,7 @@
 @valueType=str
 @version=0.3
 @writtenBy=Text-Fabric
-@dateWritten=2025-12-12T11:42:16+00:00Z
+@dateWritten=2025-12-12T12:37:03+00:00Z
 
 in
 chief part, beginning, origin
@@ -82550,6 +82550,16765 @@ whole
 him
 Israel
 and
+from
+after, following
+(relative)
+to die, AF to put to death
+Moses
+servant
+him
+(relative)
+THE LORD
+to say
+THE LORD
+to
+Jesus, Joshua
+male offspring
+Nun
+assistant
+him
+(relative)
+Moses
+Moses
+servant
+me
+to die, AF to put to death
+thence, thereafter, therefore, so then
+to arise APH raise up, place
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+Jordan
+this
+you
+and
+whole
+him
+people
+this
+to
+earth, land
+(relative)
+to give
+I
+to
+them
+to
+son
+Israel
+whole
+place, region
+(relative)
+to tread, AF to come up, to follow closely, to overtake
+in
+him
+palm of hand, sole of foot, foot measure
+(relative)
+foot, hoof
+you
+to
+you
+to be
+as, almost, about
+(relative)
+to say
+to
+Moses
+from
+desert, wilderness
+and
+mountain
+(relative)
+Mount Lebanon
+this
+and
+until, as far as, unto, so that
+to
+Euphrates
+stream, river, canal
+great
+and
+whole
+her
+earth, land
+(relative)
+Hittite
+and
+until, as far as, unto, so that
+to
+sea, lake
+great
+house
+setting of sun, west
+sun
+to be
+limit, boundary, precept, regulation
+you
+and
+not
+to arise APH raise up, place
+man, human, mortal
+before
+you
+whole
+them
+day
+(relative)
+life
+you
+and
+as, almost, about
+this
+(relative)
+to be
+with
+Moses
+to be
+even
+with
+you
+not
+PE ptc.pss.loose, porous, soft, PA to loosen, to enfeeble, to desert, AF to leave, to let alone
+you
+and
+not
+to leave, to leave behind, to dismiss, to remit
+you
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+good, exceedingly, very
+because of
+(relative)
+you
+to be heir, to inherit
+him
+to
+people
+this
+earth, land
+(relative)
+to swear
+to
+father
+them
+to
+only ipf to give, to make to be, to put
+to
+them
+in
+only, alone, sole
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+good, exceedingly, very
+to
+to guard, AF to put in a safe place
+and
+to
+to do, to make, to work
+whole
+nome, prefecture, law, custom, usage
+(relative)
+to visit, to command, to entreat, PA to give commission
+you
+Moses
+servant
+me
+not
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+from
+them
+not
+to
+right-hand side
+and
+not
+to
+left, left hand
+because of
+(relative)
+to prosper, to succeed
+in
+whole
+(relative)
+PA to go, to walk
+and
+not
+to depart, to be wanting
+this
+writing, book, letters
+(relative)
+nome, prefecture, law, custom, usage
+from
+mouth
+you
+if, O!
+not
+to be
+to think, reflect, to heed, ETHPE to be thought, considered, ETHPA to consider, reflect, APH to insinuate a thought, direct thoughts
+in
+him
+in
+night
+and
+in
+the day, the daytime
+and
+to guard, AF to put in a safe place
+and
+to do, to make, to work
+whole
+(relative)
+to write, ETHPE to be written, APH to write
+in
+him
+(relative)
+to prosper, to succeed
+and
+to prosper,to succeed, to serve well
+behold
+to visit, to command, to entreat, PA to give commission
+you
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+not
+fear
+and
+not
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+because of
+(relative)
+with
+you
+he
+THE LORD
+god
+you
+place, region
+(relative)
+to go, to walk
+you
+and
+to visit, to command, to entreat, PA to give commission
+Jesus, Joshua
+to
+ruler
+(relative)
+people
+and
+to
+scribe
+him
+and
+to say
+to
+them
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+in
+the inside, inward parts
+camp, host
+and
+to visit, to command, to entreat, PA to give commission
+to
+people
+and
+to say
+to
+them
+PA to get ready, to make preparations, ETHPA to be prepared, to ready oneself
+to
+you
+provision
+because of
+(relative)
+from this time, from this place
+to
+three
+day
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+you
+Jordan
+this
+to
+to enter, AF to bring in, to carry in
+to
+to be heir, to inherit
+earth, land
+(relative)
+THE LORD
+god
+you
+to give
+to
+you
+to
+to be heir, to inherit
+her
+and
+to
+Reuben
+and
+to
+Gad
+and
+to
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+to say
+Jesus, Joshua
+to remember, to call to mind, to be mindful of
+word, saying, matter, thing
+(relative)
+to visit, to command, to entreat, PA to give commission
+you
+Moses
+servant
+him
+(relative)
+THE LORD
+and
+to say
+to
+you
+THE LORD
+god
+you
+to rest, to stay quiet
+to
+you
+and
+to give
+to
+you
+earth, land
+this
+women
+you
+and
+honour, glory
+you
+and
+possessions, landed property
+you
+to sit, AF, to make dwell, to set, place
+in
+earth, land
+(relative)
+to give
+to
+you
+Moses
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+and
+you
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+when, although, because, while
+feed, PA supply with arms
+you
+before
+brother
+you
+whole
+you
+mighty, strong
+might, strength, force
+and
+to help, to assist, PA to help, to favour, to be useful, (with BTR) to take the part of
+they, them
+until, as far as, unto, so that
+(relative)
+to rest, to stay quiet
+THE LORD
+to
+brother
+you
+as, such as, like
+you
+and
+to be heir, to inherit
+even
+they
+earth, land
+(relative)
+THE LORD
+god
+you
+to give
+to
+them
+and
+to turn, to change, to move
+to
+earth, land
+(relative)
+inheritance, portion, lot
+you
+and
+to be heir, to inherit
+her
+(relative)
+to give
+to
+you
+Moses
+servant
+him
+(relative)
+THE LORD
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+from
+sunrise, east, Persian empire, Syria
+sun
+and
+to answer
+son
+Reuben
+and
+son
+Gad
+and
+son
+Manasseh
+and
+to say
+to
+Jesus, Joshua
+whole
+(relative)
+to visit, to command, to entreat, PA to give commission
+you
+to
+us
+to do, to make, to work
+and
+to
+where, whither
+(relative)
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+us
+to go, to walk
+and
+as, almost, about
+this
+(relative)
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+to be
+to
+Moses
+thus, so, such
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+you
+in
+only, alone, sole
+THE LORD
+god
+you
+to be
+with
+you
+as, almost, about
+this
+(relative)
+to be
+with
+Moses
+and
+whole
+man, human, mortal
+(relative)
+ETHPE to gainsay, to resist, APH to make ready to fight
+with
+you
+and
+not
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+word, saying, thing, affair
+you
+to
+whole
+something, aught
+(relative)
+to visit, to command, to entreat, PA to give commission
+you
+to
+him
+to kill, PA to kill many
+in
+only, alone, sole
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+Jesus, Joshua
+male offspring
+Nun
+from
+Shittim
+two
+man
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+in
+earth, land
+and
+to say
+to
+them
+to go, to walk
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to
+earth, land
+(relative)
+Jericho
+and
+to go, to walk
+and
+to enter, AF to bring in, to carry in
+at, with, towards, for
+woman, wife
+fornicatress, whoremongeress
+(relative)
+name, appellation, title
+her
+Rahab
+and
+to pass the night
+there, yonder
+and
+to say
+to
+king
+(relative)
+Jericho
+(relative)
+behold
+man
+to come
+to
+here, hitherto, henceforward
+in
+night
+from
+son
+Israel
+to
+touch
+earth, land
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+king
+(relative)
+Jericho
+at, with, towards, for
+Rahab
+and
+to say
+to
+her
+to go out, to issue, to proceed forth
+man
+(relative)
+to enter, AF to bring in, to carry in
+at, with, towards, for
+you
+in
+night
+because of
+(relative)
+to
+touch
+earth, land
+us
+to come
+and
+to lead, to guide, PA to lead, to guide, to drive
+woman, wife
+to
+two
+them
+man
+and
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+they, them
+and
+to say
+truly, verily, indeed
+to come
+at, with, towards, for
+me
+man
+and
+not
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+from
+whence? where?
+they, them
+and
+when, although, because, while
+to be
+time, age, era
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+gate, door, entrance
+in
+evening, eventide
+to go out, to issue, to proceed forth
+to
+them
+and
+not
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+to
+where, whither
+to go, to walk
+to go out, to issue, to proceed forth
+quickly, forthwith
+after, following
+them
+because of
+(relative)
+to tread, AF to come up, to follow closely, to overtake
+you
+to
+them
+and
+she
+to go up,to ascend
+they, them
+to
+roof, housetop, top of altar
+and
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+they, them
+house
+bundle
+(relative)
+flax, linen
+(relative)
+to put, to lay up, to constitute
+to be
+to
+her
+upon, because
+wage, fee, fare, reward
+and
+man
+to go out, to issue, to proceed forth
+after, following
+them
+in
+way, road, custom
+(relative)
+Jordan
+upon, because
+pass, passage
+and
+gate, door, entrance
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+from
+after, following
+(relative)
+to go out, to issue, to proceed forth
+persecutor
+after, following
+those
+spy
+and
+those
+until, as far as, unto, so that
+to
+this hour
+not
+to lie down
+to be
+and
+she
+to go up,to ascend
+at, with, towards, for
+them
+to
+roof, housetop, top of altar
+and
+to say
+to
+man
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+her
+to
+you
+THE LORD
+to
+earth, land
+and
+fall
+fear, dread, awe, worship, idol
+you
+upon, because
+us
+and
+even
+fear
+whole
+them
+inhabitant
+her
+(relative)
+earth, land
+from
+before
+you
+because of
+(relative)
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+(relative)
+to be dried up, to dry up
+THE LORD
+water
+(relative)
+sea, lake
+(relative)
+Red Sea
+from
+before
+you
+when, although, because, while
+to go out, to issue, to proceed forth
+from
+Egypt
+and
+something, aught
+(relative)
+to do, to make, to work
+to
+two
+king
+(relative)
+Amorite
+to
+Sihon
+and
+to
+Og
+(relative)
+to lay waste, to destroy
+they, them
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+heart
+us
+and
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+breath, wind, spirit
+in
+man, human, mortal
+from
+us
+from
+before
+you
+because of
+(relative)
+THE LORD
+god
+you
+he
+he
+god
+in
+heaven, ceiling, roof, eaves
+from
+to
+upon, because
+and
+in
+earth, land
+from
+to
+under, beneath
+thence, thereafter, therefore, so then
+to swear
+to
+me
+in
+THE LORD
+because of
+(relative)
+to do, to make, to work
+in
+you
+goodness, favour, kindness
+and
+to do, to make, to work
+even
+you
+in
+me
+and
+in
+house
+father
+me
+goodness, favour, kindness
+and
+to give
+to
+me
+sign, token
+(relative)
+truth, right, justice
+and
+to live, to be alive, AF to keep alive
+to
+me
+to
+father
+me
+and
+to
+mother
+me
+and
+to
+brother
+me
+and
+to
+sister, also possible as derv >X
+me
+and
+to
+whole
+(relative)
+there is
+to
+us
+and
+PA to deliver, to set free, pss.ptc. guiltless
+breath, animal soul
+us
+from
+death
+and
+to say
+to
+her
+man
+breath, animal soul
+us
+[possessive]
+us
+to give
+we
+exchange
+you
+to
+death
+if, O!
+not
+then
+PA to show
+you
+word, saying, thing, affair
+this
+and
+what
+(relative)
+to give
+her
+to
+us
+THE LORD
+to
+earth, land
+this
+to do, to make, to work
+we
+with
+you
+goodness, favour, kindness
+and
+truth, right, justice
+and
+to descend, PA to bring down, AF to cause to come down
+they, them
+in
+cord, line, portion, allotment
+from
+opening, window, recess
+because of
+(relative)
+house
+her
+in
+wall, partition
+to be
+(relative)
+city wall, fortification
+and
+upon, because
+city wall, fortification
+to sit, AF, to make dwell, to set, place
+to be
+and
+to say
+to
+them
+in
+mountain
+mountain
+to go, to walk
+lest, that not, why, is it not?
+to meet, to arrive, to happen upon
+in
+you
+those
+(relative)
+to go out, to issue, to proceed forth
+after, following
+you
+and
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+there, yonder
+three
+day
+until, as far as, unto, so that
+(relative)
+to turn, to change, to move
+and
+then
+to go, to walk
+in
+way, road, custom
+you
+and
+to say
+to
+her
+man
+PA to make atonement, ETHPA to be declared free from guilt
+we
+from
+oath, curse
+this
+(relative)
+to swear
+behold
+we
+to enter, AF to bring in, to carry in
+we
+to
+earth, land
+thread,string,measuring line
+then
+(relative)
+scarlet
+to tie, bind, adjust, to harden, stiffen, ETHPEto be joined, linked, PA to tie up, ETHPA to be tied up, APH to put on (crown), to condense
+in
+opening, window, recess
+(relative)
+to descend, PA to bring down, AF to cause to come down
+us
+from
+her
+and
+to
+father
+you
+and
+to
+mother
+you
+and
+to
+brother
+you
+and
+to
+whole
+him
+house
+father
+you
+to enter, AF to bring in, to carry in
+at, with, towards, for
+you
+to
+the inside, inward parts
+house
+and
+whole
+who, which, what
+(relative)
+to go out, to issue, to proceed forth
+from
+gate, door, entrance
+(relative)
+house
+you
+to
+outside area
+blood, bloodshed
+him
+in
+head, top, summit
+him
+and
+we
+PA to deliver, to set free, pss.ptc. guiltless
+we
+from
+vengeance
+him
+and
+whole
+who, which, what
+(relative)
+to be
+with
+you
+in
+the inside, inward parts
+house
+blood, bloodshed
+him
+in
+head, top, summit
+us
+and
+we
+to be unequal, to be powerless, to owe, to be guilty, PA to prevail, to cause to take an oath, condemn
+we
+vengeance
+him
+if, O!
+man, human, mortal
+stream, river, canal
+him
+and
+if, O!
+PA to show
+word, saying, thing, affair
+this
+to be
+PA to make atonement, ETHPA to be declared free from guilt
+from
+oath, curse
+(relative)
+to swear
+us
+and
+to say
+to
+them
+as, almost, about
+word, saying, thing, affair
+you
+thus, so, such
+to be
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+they, them
+and
+to go, to walk
+and
+to tie, bind, adjust, to harden, stiffen, ETHPEto be joined, linked, PA to tie up, ETHPA to be tied up, APH to put on (crown), to condense
+thread,string,measuring line
+(relative)
+scarlet
+in
+opening, window, recess
+and
+to go, to walk
+to
+mountain
+and
+to sit, AF, to make dwell, to set, place
+there, yonder
+three
+day
+until, as far as, unto, so that
+(relative)
+to turn, to change, to move
+those
+(relative)
+to go, to walk
+after, following
+them
+to
+to come
+and
+to seek
+they, them
+those
+(relative)
+to go out, to issue, to proceed forth
+after, following
+them
+in
+whole
+her
+way, road, custom
+and
+when, although, because, while
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+they, them
+to turn, to change, to move
+to
+them
+and
+they
+two
+spy
+to descend, PA to bring down, AF to cause to come down
+from
+mountain
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+and
+to go, to walk
+at, with, towards, for
+Jesus, Joshua
+male offspring
+Nun
+and
+to smooth down, to please, to stop up holes, ETHPE to gamble, to sport, ETHPA to relate, ETTAF to mock
+to
+him
+whole
+something, aught
+(relative)
+to heap up, to chance, to happen
+to
+them
+and
+to say
+to
+him
+to
+Jesus, Joshua
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+her
+THE LORD
+in
+hand, side
+us
+to
+whole
+her
+earth, land
+and
+even
+fear
+whole
+them
+inhabitant
+her
+(relative)
+earth, land
+from
+before
+us
+and
+to go before, do first, PA to rise early
+Jesus, Joshua
+in
+morning
+and
+to lift up, to carry, to break up, to march
+from
+Shittim
+and
+to come
+until, as far as, unto, so that
+to
+Jordan
+whole
+them
+(relative)
+house
+Israel
+and
+to pass the night
+there, yonder
+and
+not
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+and
+from
+after, following
+three
+day
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+ruler
+in
+the inside, inward parts
+camp, host
+and
+to visit, to command, to entreat, PA to give commission
+to
+people
+and
+to say
+to
+them
+what
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+god
+you
+and
+priest
+and
+Levite
+(relative)
+to lift up, to carry, to break up, to march
+to
+her
+then
+to lift up, to carry, to break up, to march
+from
+place, region
+you
+and
+to go, to walk
+after, following
+her
+and
+to be
+ptc.pss remote, distant (de=RXJQ), PA to put far away, ETHPA to journey afar, to avoid, APH to depart afar, ETTAPH to be removed far
+middle
+you
+and
+to
+ark, chest, coffer, coffin
+as, almost, about
+two
+thousand
+forearm, cubit
+in
+only, alone, sole
+in
+measure
+not
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+at, with, towards, for
+her
+because of
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+way, road, custom
+(relative)
+to go, to walk
+in
+her
+because of
+(relative)
+not
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+in
+way, road, custom
+from
+yesterday
+and
+from
+day before yesterday, the other day
+and
+to say
+Jesus, Joshua
+to
+people
+to be holy, PA to hallow, to sanctify, to consecrate
+because of
+(relative)
+the after time, future, tomorrow
+to do, to make, to work
+THE LORD
+marvel, wonder
+middle
+you
+and
+to say
+Jesus, Joshua
+to
+priest
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+(relative)
+covenant
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+before
+people
+and
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+(relative)
+covenant
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+before
+people
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+from
+today
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+to
+to be great, to become great
+you
+in
+eye
+whole
+him
+Israel
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+as, almost, about
+this
+(relative)
+to be
+with
+Moses
+to be
+even
+with
+you
+and
+you
+to visit, to command, to entreat, PA to give commission
+to
+priest
+(relative)
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+and
+to say
+to
+them
+what
+(relative)
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+to
+head, top, summit
+water
+(relative)
+Jordan
+in
+him
+in
+Jordan
+to arise APH raise up, place
+and
+to say
+Jesus, Joshua
+to
+son
+Israel
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+here, hitherto, henceforward
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+word, saying, thing, affair
+him
+(relative)
+THE LORD
+god
+you
+and
+to say
+Jesus, Joshua
+in
+this
+to be
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+god
+alive
+in
+you
+and
+to lay waste, to destroy
+from
+before
+you
+to
+Hittite
+and
+to
+Canaanite
+and
+to
+Hivite
+and
+to
+Perizzite
+and
+to
+Girgashite
+and
+to
+Amorite
+and
+to
+Jebusite
+(relative)
+behold
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+lord
+her
+(relative)
+whole
+her
+earth, land
+before
+you
+in
+Jordan
+thence, thereafter, therefore, so then
+to lead, to guide, PA to lead, to guide, to drive
+to
+you
+two
+ten
+man
+from
+whole
+them
+rod, stripe, tribe
+(relative)
+Israel
+one
+one
+man
+from
+rod, stripe, tribe
+and
+what
+(relative)
+to rest, to stay quiet
+palm of hand, sole of foot, foot measure
+(relative)
+foot, hoof
+them
+(relative)
+priest
+(relative)
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+lord
+her
+(relative)
+whole
+her
+earth, land
+in
+water
+(relative)
+Jordan
+water
+(relative)
+Jordan
+to divide, to have a portion, PA to divide into many parts
+water
+(relative)
+to descend, PA to bring down, AF to cause to come down
+from
+to
+upon, because
+to arise APH raise up, place
+as, almost, about
+(relative)
+in
+water skin
+one
+to
+side
+one
+and
+when, although, because, while
+to lift up, to carry, to break up, to march
+people
+from
+tent, tabernacle, habitation
+them
+to
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+Jordan
+priest
+(relative)
+to lift up, to carry, to break up, to march
+to be
+ark, chest, coffer, coffin
+(relative)
+covenant
+to go, to walk
+to be
+before
+people
+and
+when, although, because, while
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+until, as far as, unto, so that
+to
+Jordan
+foot, hoof
+them
+(relative)
+priest
+(relative)
+to lift up, to carry, to break up, to march
+to be
+ark, chest, coffer, coffin
+to dip, to moisten, to dye
+in
+shore, coast
+water
+and
+Jordan
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+to be
+lip, brim, edge
+in
+lip, brim, edge
+whole
+them
+day
+(relative)
+harvest
+and
+to arise APH raise up, place
+water
+(relative)
+to descend, PA to bring down, AF to cause to come down
+to be
+from
+to
+upon, because
+to arise APH raise up, place
+as, almost, about
+(relative)
+in
+water skin
+one
+to
+side
+one
+ptc.pss remote, distant (de=RXJQ), PA to put far away, ETHPA to journey afar, to avoid, APH to depart afar, ETTAPH to be removed far
+good, exceedingly, very
+from
+Aram
+town, village
+(relative)
+there is
+upon, because
+bank, shore
+Zaretham
+and
+(relative)
+to descend, PA to bring down, AF to cause to come down
+to
+sea, lake
+(relative)
+setting of sun, west
+sea, lake
+(relative)
+salt
+to finish, to accomplish, PA to make perfect, to bring to an end
+and
+to divide, to have a portion, PA to divide into many parts
+people
+then
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+opposite, against, before, towards
+Jericho
+and
+to arise APH raise up, place
+priest
+(relative)
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+in
+dry land, earth
+in
+the inside, inward parts
+Jordan
+and
+PA to get ready, to make preparations, ETHPA to be prepared, to ready oneself
+whole
+them
+(relative)
+house
+Israel
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+in
+dry land, earth
+until, as far as, unto, so that
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+whole
+him
+people
+to
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+Jordan
+and
+when, although, because, while
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+whole
+him
+people
+to
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+Jordan
+to say
+THE LORD
+to
+Jesus, Joshua
+to lead, to guide, PA to lead, to guide, to drive
+to
+you
+from
+people
+two
+ten
+man
+one
+one
+man
+from
+rod, stripe, tribe
+and
+to visit, to command, to entreat, PA to give commission
+they, them
+and
+to say
+to
+them
+to take, to receive
+to
+you
+from this time, from this place
+from
+the inside, inward parts
+Jordan
+from
+under, beneath
+foot, hoof
+them
+(relative)
+priest
+PA to get ready, to make preparations, ETHPA to be prepared, to ready oneself
+two
+ten
+stone
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+they, them
+with
+you
+and
+to put, to lay up, to constitute
+they, them
+house
+passing the night
+(relative)
+to pass the night
+you
+in
+him
+in
+night
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+Jesus, Joshua
+to
+two
+ten
+man
+those
+(relative)
+PA to get ready, to make preparations, ETHPA to be prepared, to ready oneself
+from
+son
+Israel
+one
+one
+man
+from
+rod, stripe, tribe
+and
+to say
+to
+them
+Jesus, Joshua
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+before
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+god
+you
+in
+the inside, inward parts
+Jordan
+and
+to put, to lay up, to constitute
+man
+stone
+him
+upon, because
+shoulder, shoulder blade, upper side
+him
+in
+numbering, number, reckoning
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Israel
+because of
+(relative)
+to be
+sign, token
+this
+middle
+you
+(relative)
+when, although, because, while
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+you
+son
+you
+from
+the after time, future, tomorrow
+and
+to say
+to
+you
+what, why, wherefore
+they, them
+stone
+these
+to say
+to
+them
+(relative)
+to divide, to have a portion, PA to divide into many parts
+water
+(relative)
+Jordan
+from
+before
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+when, although, because, while
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+in
+Jordan
+to divide, to have a portion, PA to divide into many parts
+water
+(relative)
+Jordan
+and
+to be
+these
+stone
+remembrance
+to
+son
+Israel
+to
+age, era, eternity
+and
+to do, to make, to work
+thus, so, such
+son
+Israel
+as, almost, about
+(relative)
+to visit, to command, to entreat, PA to give commission
+they, them
+Jesus, Joshua
+and
+to lift up, to carry, to break up, to march
+two
+ten
+stone
+from
+the inside, inward parts
+Jordan
+as, almost, about
+(relative)
+to say
+THE LORD
+to
+Jesus, Joshua
+in
+numbering, number, reckoning
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Israel
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+they, them
+with
+them
+to
+house
+passing the night
+and
+to leave, to leave behind, to dismiss, to remit
+they, them
+there, yonder
+and
+two
+ten
+stone
+to arise APH raise up, place
+(relative)
+to take, to receive
+from
+the inside, inward parts
+Jordan
+from
+under, beneath
+foot, hoof
+them
+(relative)
+priest
+(relative)
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+(relative)
+covenant
+and
+to be
+there, yonder
+until, as far as, unto, so that
+to
+today
+and
+priest
+(relative)
+to lift up, to carry, to break up, to march
+to be
+ark, chest, coffer, coffin
+to arise APH raise up, place
+to be
+in
+the inside, inward parts
+Jordan
+until, as far as, unto, so that
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+whole
+them
+word, saying, matter, thing
+(relative)
+to visit, to command, to entreat, PA to give commission
+THE LORD
+to
+Jesus, Joshua
+to
+to say
+to
+people
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+him
+Moses
+to
+Jesus, Joshua
+and
+PE (ptc. pass. only), to hasten, ETHPE to be disquieted, to be afraid, AF to trouble, disquiet, to hasten, ESTAPH to make haste, to hasten, SAPH to hasten, impel, urge on, ESTAPH to make haste, hasten
+people
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+and
+when, although, because, while
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+whole
+him
+people
+entirely
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+and
+priest
+before
+people
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+son
+Reuben
+and
+son
+Gad
+and
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+when, although, because, while
+feed, PA supply with arms
+before
+son
+Israel
+as, almost, about
+this
+(relative)
+to say
+to
+them
+Moses
+four
+thousand
+when, although, because, while
+feed, PA supply with arms
+in
+might, strength, force
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+before
+THE LORD
+to
+nearness, war
+in
+plain, broad valley, level tract, expanse
+(relative)
+Jericho
+in
+him
+in
+day
+that
+to be great, to become great
+THE LORD
+to
+Jesus, Joshua
+in
+eye
+whole
+him
+Israel
+and
+fear
+from
+him
+as, almost, about
+this
+(relative)
+fear
+to be
+from
+Moses
+whole
+them
+day
+(relative)
+life
+him
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+to visit, to command, to entreat, PA to give commission
+to
+priest
+(relative)
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+(relative)
+witness, evidence, confession
+and
+to go up,to ascend
+from
+the inside, inward parts
+Jordan
+and
+to visit, to command, to entreat, PA to give commission
+Jesus, Joshua
+to
+priest
+and
+to say
+to
+them
+to go up,to ascend
+from
+the inside, inward parts
+Jordan
+and
+when, although, because, while
+to go up,to ascend
+to be
+priest
+(relative)
+to lift up, to carry, to break up, to march
+to be
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+from
+the inside, inward parts
+Jordan
+to stay, to sustain, ETHPE to support oneself, to lean on, to rely upon, PA to uphold, to support, ETHPA to lean on, to be supported
+palm of hand, sole of foot, foot measure
+(relative)
+foot, hoof
+them
+(relative)
+priest
+in
+dry land, earth
+and
+to turn, to change, to move
+water
+(relative)
+Jordan
+to
+place
+them
+and
+PA to go, to walk
+as, almost, about
+(relative)
+from
+first, former
+upon, because
+whole
+them
+shore, coast
+him
+(relative)
+Jordan
+and
+people
+to go up,to ascend
+from
+the inside, inward parts
+Jordan
+in
+ten
+in
+month
+first
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+in
+Gilgal
+in
+the uttermost part, end, edge, border
+sunrise, east, Persian empire, Syria
+her
+(relative)
+Jericho
+and
+two
+ten
+stone
+these
+(relative)
+to take, to receive
+from
+the inside, inward parts
+Jordan
+to arise APH raise up, place
+they, them
+Jesus, Joshua
+in
+Gilgal
+and
+to say
+to
+son
+Israel
+when, although, because, while
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+you
+son
+you
+from
+the after time, future, tomorrow
+and
+to say
+to
+you
+what, why, wherefore
+they, them
+stone
+these
+PA to show
+they, them
+to
+son
+you
+and
+to say
+to
+them
+(relative)
+in
+dry land, earth
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+son
+Israel
+Jordan
+this
+and
+to be dried up, to dry up
+THE LORD
+god
+you
+water
+(relative)
+Jordan
+from
+before
+them
+until, as far as, unto, so that
+(relative)
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+as, almost, about
+(relative)
+to do, to make, to work
+THE LORD
+god
+you
+to
+sea, lake
+(relative)
+Red Sea
+(relative)
+to be dried up, to dry up
+him
+from
+before
+us
+until, as far as, unto, so that
+(relative)
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+whole
+them
+people
+(relative)
+earth, land
+hand, side
+him
+(relative)
+THE LORD
+(relative)
+strong, mighty, powerful
+she
+and
+fear
+to
+THE LORD
+god
+you
+whole
+them
+day
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+whole
+them
+king
+(relative)
+Amorite
+(relative)
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+(relative)
+in
+setting of sun, west
+and
+whole
+them
+king
+(relative)
+Canaan
+(relative)
+upon, because
+hand, side
+sea, lake
+(relative)
+to be dried up, to dry up
+THE LORD
+water
+(relative)
+Jordan
+from
+before
+son
+Israel
+until, as far as, unto, so that
+(relative)
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+heart
+them
+and
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+in
+them
+breath, animal soul
+from
+before
+son
+Israel
+in
+him
+in
+time, age, era
+that
+to say
+THE LORD
+to
+Jesus, Joshua
+to do, to make, to work
+to
+you
+sword or dagger
+(relative)
+rock, flint
+and
+to turn, to change, to move
+to determine, to decree, to circumcise
+they, them
+to
+son
+Israel
+second instance
+and
+to do, to make, to work
+to
+him
+Jesus, Joshua
+sword or dagger
+(relative)
+rock, flint
+and
+to determine, to decree, to circumcise
+they, them
+to
+son
+Israel
+second instance
+in
+high place, hill
+(relative)
+uncircumcised
+and
+these
+they, them
+(relative)
+to determine, to decree, to circumcise
+Jesus, Joshua
+to
+whole
+birth, bringing forth, offspring
+(relative)
+people
+(relative)
+to go out, to issue, to proceed forth
+from
+Egypt
+male, masculine, a ram, chem. arsenic
+because of
+(relative)
+whole
+them
+man
+to do, to make, to work
+nearness, war
+to die, AF to put to death
+in
+desert, wilderness
+in
+way, road, custom
+when, although, because, while
+to go out, to issue, to proceed forth
+from
+Egypt
+because of
+(relative)
+to determine, to decree, to circumcise
+to be
+whole
+people
+(relative)
+to go out, to issue, to proceed forth
+and
+whole
+people
+(relative)
+to beget, to generate, ptc.f.emph de=JLDT>
+in
+desert, wilderness
+in
+way, road, custom
+when, although, because, while
+to go out, to issue, to proceed forth
+from
+Egypt
+not
+to determine, to decree, to circumcise
+because of
+(relative)
+four
+year
+PA to go, to walk
+son
+Israel
+in
+desert, wilderness
+until, as far as, unto, so that
+(relative)
+to come to an end, perish
+whole
+him
+people
+(relative)
+man
+to do, to make, to work
+nearness, war
+(relative)
+to go out, to issue, to proceed forth
+from
+Egypt
+upon, because
+(relative)
+not
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+in
+voice, sound
+him
+(relative)
+THE LORD
+god
+them
+and
+to swear
+to
+them
+THE LORD
+(relative)
+not
+PA to show
+they, them
+earth, land
+(relative)
+to swear
+to
+father
+them
+to
+only ipf to give, to make to be, to put
+to
+them
+earth, land
+(relative)
+to journey, to continue, to emanate, to instruct, to chastise
+milk
+and
+honey
+and
+to
+son
+them
+(relative)
+to be
+from
+after, following
+them
+to
+them
+to determine, to decree, to circumcise
+Jesus, Joshua
+because of
+(relative)
+gentile, profane
+to be
+and
+not
+to determine, to decree, to circumcise
+to be
+and
+when, although, because, while
+to finish, to accomplish, PA to make perfect, to bring to an end
+whole
+him
+people
+to
+to determine, to decree, to circumcise
+to sit, AF, to make dwell, to set, place
+in
+place
+them
+in
+camp, host
+until, as far as, unto, so that
+(relative)
+PA to heal, to restore, ETHPE to be healed
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+today
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+shameful thing, shame, reproach
+(relative)
+Egyptian
+from
+you
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+name, appellation, title
+him
+(relative)
+place, region
+that
+Gilgal
+until, as far as, unto, so that
+to
+today
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+son
+Israel
+in
+Gilgal
+and
+to do, to make, to work
+Passover, Passover lamb, Passover feast, Easter
+in
+four
+ten
+in
+month
+first
+in
+evening, eventide
+in
+plain, broad valley, level tract, expanse
+(relative)
+Jericho
+and
+to eat, to consume
+from
+crop, produce, corn, food
+(relative)
+earth, land
+from
+after, following
+Passover, Passover lamb, Passover feast, Easter
+fresh, untanned, unleavened, sincere
+and
+roasted
+to eat, to consume
+in
+him
+in
+day
+this
+and
+to lift up, to carry, to break up, to march
+manna
+from
+after, following
+day
+when, although, because, while
+to eat, to consume
+from
+crop, produce, corn, food
+(relative)
+earth, land
+and
+not
+to be
+again, back
+manna
+to
+son
+Israel
+and
+to eat, to consume
+from
+ingathering, increase, harvest
+her
+(relative)
+earth, land
+(relative)
+Canaan
+in
+her
+in
+year
+that
+and
+when, although, because, while
+to be
+Jesus, Joshua
+in
+plain, broad valley, level tract, expanse
+(relative)
+Jericho
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+eye
+him
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+man
+one
+to arise APH raise up, place
+opposite, against, before, towards
+him
+and
+sword
+him
+to draw out, to pull out (a sword), ETHPE to be unsheathed, to be drawn out, ETHPA to get loose from harness, throw off yoke, APH to draw off sandals
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+in
+hand, side
+him
+and
+to go, to walk
+Jesus, Joshua
+at, with, towards, for
+him
+and
+to say
+to
+him
+from
+us
+you
+or, either
+from
+adversary
+us
+to say
+to
+him
+I
+great
+strength, power, force
+him
+I
+(relative)
+THE LORD
+and
+this hour
+to come
+and
+fall
+Jesus, Joshua
+upon, because
+nostril, countenance
+him
+upon, because
+earth, land
+and
+to bow, to do obeisance
+and
+to say
+what, why, wherefore
+to say
+lord
+me
+to
+servant
+him
+and
+to say
+great
+strength, power, force
+him
+(relative)
+THE LORD
+to
+Jesus, Joshua
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+shoe, sandal
+you
+from
+foot, hoof
+you
+because of
+(relative)
+place
+(relative)
+to arise APH raise up, place
+you
+in
+her
+pure, holy
+she
+and
+to do, to make, to work
+Jesus, Joshua
+thus, so, such
+and
+Jericho
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+to be
+from
+before
+son
+Israel
+and
+not
+there is
+to be
+(relative)
+to go out, to issue, to proceed forth
+and
+not
+(relative)
+to enter, AF to bring in, to carry in
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+in
+hand, side
+you
+to
+Jericho
+and
+to
+king
+her
+and
+to
+whole
+him
+might, strength, force
+her
+to go round, to encompass, AF to enclose, to make go round
+her
+to
+city, town, province
+whole
+them
+man
+to do, to make, to work
+nearness, war
+and
+to go round, to encompass, to roll up, to wrap round, AF to make to turn round
+her
+to
+city, town, province
+time (to express repetition)
+one
+in
+day
+one
+thus, so, such
+to do, to make, to work
+six
+day
+and
+seven
+priest
+to lift up, to carry, to break up, to march
+horn
+and
+to make joyful noise, sound a trumpet, shout
+before
+ark, chest, coffer, coffin
+and
+to
+day
+(relative)
+seven
+to go round, to encompass, to roll up, to wrap round, AF to make to turn round
+her
+to
+city, town, province
+seven
+time, age, era
+and
+priest
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+in
+horn
+and
+what
+(relative)
+to make joyful noise, sound a trumpet, shout
+in
+horn
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+voice, sound
+(relative)
+horn
+shout, APH make cry out
+whole
+him
+people
+clamour
+great
+and
+fall
+city wall, fortification
+(relative)
+city, town, province
+upon, because
+place
+him
+and
+to go up,to ascend
+people
+man, human, mortal
+opposite, against, before, towards
+him
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+Jesus, Joshua
+male offspring
+Nun
+to
+priest
+and
+to say
+to
+them
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+and
+seven
+priest
+to lift up, to carry, to break up, to march
+seven
+horn
+and
+to make joyful noise, sound a trumpet, shout
+before
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+and
+to say
+to
+people
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+and
+to go round, to encompass, to roll up, to wrap round, AF to make to turn round
+to
+city, town, province
+and
+who, which, what
+(relative)
+PA to arm
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+before
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+and
+as, almost, about
+(relative)
+to say
+Jesus, Joshua
+to
+people
+seven
+priest
+to lift up, to carry, to break up, to march
+to be
+seven
+horn
+and
+to make joyful noise, sound a trumpet, shout
+to be
+before
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to be
+in
+horn
+and
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+to come
+to be
+after, following
+them
+and
+(relative)
+PA to arm
+to be
+to go, to walk
+to be
+before
+priest
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to be
+in
+horn
+and
+(relative)
+to gather together, to collect, PA to assemble, to call together
+to go, to walk
+to be
+after, following
+ark, chest, coffer, coffin
+and
+PA to go, to walk
+to be
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to be
+in
+horn
+and
+to
+people
+to visit, to command, to entreat, PA to give commission
+Jesus, Joshua
+and
+to say
+not
+shout, APH make cry out
+and
+not
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+voice, sound
+you
+and
+word, saying, thing, affair
+not
+to go out, to issue, to proceed forth
+from
+mouth
+you
+until, as far as, unto, so that
+to
+day
+(relative)
+to say
+to
+you
+(relative)
+shout, APH make cry out
+and
+then
+shout, APH make cry out
+and
+to go round, to encompass, to roll up, to wrap round, AF to make to turn round
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+to
+city, town, province
+time (to express repetition)
+one
+and
+to come
+to
+camp, host
+and
+to pass the night
+in
+camp, host
+and
+to go before, do first, PA to rise early
+Jesus, Joshua
+in
+early dawn, twilight
+and
+to lift up, to carry, to break up, to march
+priest
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+and
+seven
+priest
+to lift up, to carry, to break up, to march
+to be
+seven
+horn
+and
+to go, to walk
+to be
+before
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+and
+PA to go, to walk
+to be
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+in
+horn
+and
+who, which, what
+(relative)
+PA to arm
+to be
+to go, to walk
+to be
+before
+them
+and
+(relative)
+to gather together, to collect, PA to assemble, to call together
+to be
+to go, to walk
+to be
+after, following
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+in
+horn
+and
+to go round, to encompass, to roll up, to wrap round, AF to make to turn round
+her
+to
+city, town, province
+that
+in
+day
+(relative)
+two
+time (to express repetition)
+one
+and
+to turn, to change, to move
+to
+them
+to
+camp, host
+thus, so, such
+to do, to make, to work
+to be
+six
+them
+day
+and
+in
+day
+(relative)
+seven
+to go before, do first, PA to rise early
+in
+early dawn, twilight
+and
+to go round, to encompass, to roll up, to wrap round, AF to make to turn round
+her
+to
+city, town, province
+as, almost, about
+nome, prefecture, law, custom, usage
+this
+seven
+time, age, era
+in
+only, alone, sole
+then
+in
+him
+in
+that
+day
+to go round, to encompass, to roll up, to wrap round, AF to make to turn round
+her
+seven
+time, age, era
+and
+in
+time (to express repetition)
+that
+(relative)
+seven
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+priest
+in
+horn
+and
+to say
+Jesus, Joshua
+to
+people
+shout, APH make cry out
+because of
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+her
+to
+you
+THE LORD
+to
+city, town, province
+and
+to be
+city, town, province
+this
+and
+whole
+(relative)
+there is
+in
+her
+under a ban, accursed, savage
+to
+THE LORD
+in
+only, alone, sole
+to
+Rahab
+fornicatress, whoremongeress
+to live, to be alive, AF to keep alive
+to
+her
+and
+to
+whole
+(relative)
+there is
+with
+her
+in
+house
+because of
+(relative)
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+to
+those
+spy
+(relative)
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+you
+then
+to be
+to be clear, transparent, careful of, PA to warn, admonish, EtPA (>ZDHR) to take care, watch over
+from
+under a ban, accursed, savage
+(relative)
+not
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+and
+to take, to receive
+from
+under a ban, accursed, savage
+and
+to do, to make, to work
+her
+to
+camp, host
+(relative)
+Israel
+under a ban, accursed, savage
+and
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+her
+whole
+silver
+and
+gold
+and
+vessel, utensil, instrument, garment
+(relative)
+brass
+and
+(relative)
+iron
+pure, holy
+they, them
+to
+THE LORD
+to
+house
+treasure, treasury
+him
+(relative)
+THE LORD
+to enter, AF to bring in, to carry in
+and
+shout, APH make cry out
+people
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+in
+horn
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+people
+voice, sound
+(relative)
+horn
+shout, APH make cry out
+people
+clamour
+great
+(relative)
+good, exceedingly, very
+and
+fall
+city wall, fortification
+upon, because
+place
+him
+and
+to go up,to ascend
+people
+to
+city, town, province
+man, human, mortal
+opposite, against, before, towards
+him
+and
+to break up, to subjugate, to subdue
+her
+to
+city, town, province
+and
+to lay waste, to destroy
+to
+whole
+(relative)
+there is
+in
+her
+from
+man
+and
+until, as far as, unto, so that
+to
+women
+and
+from
+young
+and
+until, as far as, unto, so that
+to
+elder
+and
+until, as far as, unto, so that
+to
+bull, ox
+and
+until, as far as, unto, so that
+to
+flock, small cattle
+and
+to
+ass
+to lay waste, to destroy
+in
+mouth
+(relative)
+sword
+and
+to
+two
+man
+those
+(relative)
+touch
+her
+to
+earth, land
+to say
+Jesus, Joshua
+to enter, AF to bring in, to carry in
+to
+house
+woman, wife
+that
+fornicatress, whoremongeress
+and
+to go out, to issue, to proceed forth
+her
+from
+there, yonder
+to
+her
+to
+woman, wife
+and
+to
+whole
+(relative)
+there is
+to
+her
+as, almost, about
+this
+(relative)
+to swear
+to
+her
+and
+to go, to walk
+spy
+and
+to go out, to issue, to proceed forth
+her
+to
+Rahab
+and
+to
+father
+her
+and
+to
+mother
+her
+and
+to
+brother
+her
+and
+to
+whole
+(relative)
+there is
+to
+her
+and
+to
+whole
+her
+generation, family, race, tribe
+her
+to go out, to issue, to proceed forth
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+they, them
+to
+outside area
+from
+camp, host
+(relative)
+Israel
+and
+to
+city, town, province
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+her
+in
+fire
+and
+to
+whole
+(relative)
+there is
+in
+her
+in
+only, alone, sole
+to
+gold
+and
+to
+silver
+and
+to
+vessel, utensil, instrument, garment
+(relative)
+brass
+and
+(relative)
+iron
+to come
+to
+house
+treasure, treasury
+him
+(relative)
+THE LORD
+and
+to
+Rahab
+fornicatress, whoremongeress
+and
+to
+house
+father
+her
+and
+to
+whole
+(relative)
+there is
+to
+her
+to live, to be alive, AF to keep alive
+Jesus, Joshua
+and
+to sit, AF, to make dwell, to set, place
+in
+the inside, inward parts
+son
+Israel
+until, as far as, unto, so that
+to
+today
+because of
+(relative)
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+spy
+(relative)
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+Jesus, Joshua
+to
+touch
+to
+Jericho
+and
+to swear
+Jesus, Joshua
+in
+time, age, era
+that
+and
+to say
+to curse
+he
+man
+before
+THE LORD
+(relative)
+to arise APH raise up, place
+and
+to build,PA to restore,to edify
+her
+to
+city, town, province
+this
+Jericho
+in
+firstborn
+him
+to build,PA to restore,to edify
+her
+and
+in
+little, feeble, younger, inferior
+him
+to arise APH raise up, place
+gate, door, entrance
+him
+and
+to be
+THE LORD
+with
+Jesus, Joshua
+and
+hearing, report, narration
+him
+to go, to walk
+to be
+in
+whole
+her
+earth, land
+and
+PA to raise, ETHPA to be raised, to be exalted, AF to lift up, to act perversely
+son
+Israel
+wicked
+in
+under a ban, accursed, savage
+and
+to take, to receive
+Achar
+male offspring
+Carmi
+male offspring
+Zabdi
+male offspring
+Zerah
+from
+rod, stripe, tribe
+(relative)
+Judah
+to take, to receive
+from
+under a ban, accursed, savage
+and
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+and
+to burn with anger, PA to enrage, ETHPA to rage, be furious, to provoke, APH to provoke, anger, vex
+rage
+him
+(relative)
+THE LORD
+upon, because
+son
+Israel
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+Jesus, Joshua
+man
+from
+Jericho
+to
+Ai
+(relative)
+upon, because
+bank, shore
+house
+On
+from
+sunrise, east, Persian empire, Syria
+(relative)
+house
+El (divine name)
+and
+to say
+to
+them
+to go up,to ascend
+touch
+earth, land
+and
+to go up,to ascend
+man
+and
+touch
+her
+to
+Ai
+and
+to turn, to change, to move
+at, with, towards, for
+Jesus, Joshua
+and
+to say
+to
+him
+not
+to go up,to ascend
+whole
+him
+people
+if, O!
+not
+as, almost, about
+two
+three
+thousand
+man
+to go up,to ascend
+to lay waste, to destroy
+her
+to
+Ai
+not
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+to
+whole
+him
+people
+because of
+(relative)
+little, feeble, younger, inferior
+they, them
+and
+to go up,to ascend
+from
+people
+to
+there, yonder
+as, almost, about
+three
+thousand
+man
+and
+to flee, to avoid
+to
+them
+from
+before
+man, human, mortal
+her
+(relative)
+Ai
+and
+to lay waste, to destroy
+man, human, mortal
+her
+(relative)
+Ai
+from
+Israel
+three
+and
+six
+man
+and
+to urge on, banish, chase away, pursue
+they, them
+before
+gate, door, entrance
+until, as far as, unto, so that
+(relative)
+to break, to rend, PA to break, to shatter
+and
+to strike, to beat, to wound
+in
+them
+blow, wound, sore, sickness, plague
+and
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+heart
+him
+(relative)
+people
+and
+to be
+as, almost, about
+water
+and
+to tear apart, to break through, ETHP to be rent in twain, PA to rend (garments), ETHPA to be violently rent, to burst
+Jesus, Joshua
+garment
+him
+and
+fall
+upon, because
+nostril, countenance
+him
+upon, because
+earth, land
+before
+ark, chest, coffer, coffin
+him
+(relative)
+THE LORD
+until, as far as, unto, so that
+to
+evening, eventide
+he
+and
+elder
+(relative)
+Israel
+and
+throw down
+dust, earth
+upon, because
+head, top, summit
+them
+and
+to say
+Jesus, Joshua
+interj of calling, imploring, sorrow
+THE LORD
+god
+to
+what, why, wherefore
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+him
+to
+people
+this
+Jordan
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+us
+in
+hand, side
+(relative)
+Amorite
+if, Oh that!
+to sit, AF, to make dwell, to set, place
+to be
+to
+us
+now, indeed, verily
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+what, why, wherefore
+thence, thereafter, therefore, so then
+to say
+(relative)
+to turn, to return, to repent, ETHPE to betake oneself, to turn towards, PA to restore, AF to cause to turn
+Israel
+neck, nape of neck, back
+him
+before
+adversary
+him
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+Canaanite
+and
+whole
+them
+inhabitant
+her
+(relative)
+earth, land
+and
+to gather together, to collect, PA to assemble, to call together
+upon, because
+us
+and
+to perish, to come to naught. AF to destroy
+name, appellation, title
+us
+from
+nostril, countenance
+earth, land
+and
+what, why, wherefore
+to do, to make, to work
+you
+then
+to
+name, appellation, title
+you
+great
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+to arise APH raise up, place
+to
+you
+to
+what, why, wherefore
+throw down
+you
+upon, because
+nostril, countenance
+you
+upon, because
+earth, land
+to miss, to sin, PA to be arrogant, AF to cause to sin
+Israel
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+upon, because
+visitation, command
+(relative)
+to visit, to command, to entreat, PA to give commission
+they, them
+and
+to take, to receive
+from
+under a ban, accursed, savage
+and
+even
+to steal, to do secretly, to conceal, to deceive
+even
+to be false, PA to lie
+and
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+in
+part, portion
+them
+and
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+again, back
+son
+Israel
+to
+to arise APH raise up, place
+before
+adversary
+them
+if, O!
+not
+neck, nape of neck, back
+them
+to turn, to return, to repent, ETHPE to betake oneself, to turn towards, PA to restore, AF to cause to turn
+before
+adversary
+them
+because of
+(relative)
+to be
+to
+under a ban, accursed, savage
+and
+again, back
+not
+to be
+with
+them
+if, O!
+not
+if, O!
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+under a ban, accursed, savage
+from
+middle
+you
+to arise APH raise up, place
+PA to summon, to invite
+him
+to
+people
+this
+and
+to say
+PA to summon, to invite
+the after time, future, tomorrow
+because of
+(relative)
+thus, so, such
+to say
+THE LORD
+god
+(relative)
+Israel
+under a ban, accursed, savage
+in
+the inside, inward parts
+you
+Israel
+again, back
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+you
+to
+to arise APH raise up, place
+before
+adversary
+you
+until, as far as, unto, so that
+(relative)
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+under a ban, accursed, savage
+from
+middle
+you
+and
+in
+morning
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+rod, stripe, tribe
+you
+and
+rod, stripe, tribe
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+him
+THE LORD
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+generation, family, race, tribe
+and
+generation, family, race, tribe
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+her
+THE LORD
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+house
+and
+house
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+him
+THE LORD
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+man
+and
+who, which, what
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+in
+him
+in
+under a ban, accursed, savage
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+in
+fire
+that
+and
+whole
+something, aught
+(relative)
+there is
+to
+him
+upon, because
+(relative)
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+upon, because
+visitation, command
+him
+(relative)
+THE LORD
+and
+upon, because
+(relative)
+to do, to make, to work
+iniquity, injustice
+in
+Israel
+and
+to go before, do first, PA to rise early
+Jesus, Joshua
+in
+morning
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+him
+to
+Israel
+to
+rod, stripe, tribe
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+rod, stripe, tribe
+(relative)
+Judah
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+rod, stripe, tribe
+(relative)
+Judah
+to
+generation, family, race, tribe
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+generation, family, race, tribe
+(relative)
+Zerah
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+generation, family, race, tribe
+(relative)
+Zerah
+to
+house
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+Zabdi
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+house
+him
+to
+man
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+Achar
+male offspring
+Carmi
+male offspring
+Zabdi
+male offspring
+Zerah
+from
+rod, stripe, tribe
+(relative)
+Judah
+and
+to say
+Jesus, Joshua
+to
+Achar
+to give
+grandeur, magnitude, magnificence, dignity
+to
+THE LORD
+god
+(relative)
+Israel
+and
+to give
+to
+him
+acknowledgement, profession, thanksgiving
+and
+PA to show
+something, aught
+(relative)
+to do, to make, to work
+and
+not
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+from
+me
+to answer
+Achar
+and
+to say
+to
+Jesus, Joshua
+truly, verily, indeed
+I
+to miss, to sin, PA to be arrogant, AF to cause to sin
+to
+THE LORD
+god
+(relative)
+Israel
+and
+thus, so, such
+to do, to make, to work
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+in
+spoil,robbery
+tapestry, mantle
+one
+Babylonian
+and
+fair, good, lovely, pleasing
+to be
+and
+hundred
+weight, scale, balance
+(relative)
+silver
+and
+tongue, speech, language
+one
+(relative)
+gold
+(relative)
+to weigh, to pay
+five
+weight, scale, balance
+and
+to desire, covet, lust, PALP to make to long, to arouse desire, ETHPALP to long sorely, yearn, earnestly desire, APH to long, covet
+they, them
+and
+to take, to receive
+they, them
+and
+behold
+to hide, to bury under the earth
+to
+me
+in
+earth, land
+in
+tent, tabernacle, habitation
+me
+and
+silver
+from
+to
+under, beneath
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+Jesus, Joshua
+man
+and
+to run, to have free course, to be eager, AF to drive, to urge forward
+to
+tent, tabernacle, habitation
+him
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+to hide, to bury under the earth
+in
+tent, tabernacle, habitation
+him
+and
+silver
+from
+to
+under, beneath
+and
+to take, to receive
+they, them
+from
+tent, tabernacle, habitation
+him
+and
+to come
+they, them
+at, with, towards, for
+Jesus, Joshua
+and
+at, with, towards, for
+whole
+him
+Israel
+and
+to put, to lay up, to constitute
+they, them
+before
+THE LORD
+and
+to lead, to guide, PA to lead, to guide, to drive
+him
+Jesus, Joshua
+to
+Achar
+male offspring
+Zerah
+and
+to take, to receive
+to
+silver
+and
+to
+tapestry, mantle
+and
+to
+tongue, speech, language
+(relative)
+gold
+and
+to lead, to guide, PA to lead, to guide, to drive
+to
+son
+him
+and
+to
+daughter
+him
+and
+to
+bull, ox
+him
+and
+to
+ass
+him
+and
+to
+flock, small cattle
+him
+and
+to
+tent, tabernacle, habitation
+him
+and
+to
+whole
+something, aught
+(relative)
+there is
+to
+him
+and
+to
+whole
+him
+Israel
+with
+him
+and
+to go up,to ascend
+they, them
+to
+the deep, depth, low-lying country
+(relative)
+PA to hinder, ETHPA to be hindered
+and
+to say
+to
+him
+Jesus, Joshua
+to
+what, why, wherefore
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+us
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+you
+THE LORD
+in
+day
+this
+and
+to stone, to heap stones
+him
+in
+stone
+whole
+him
+Israel
+to
+him
+and
+to
+whole
+(relative)
+there is
+to
+him
+and
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+they, them
+in
+fire
+and
+to arise APH raise up, place
+upon, because
+him
+heap of stones
+(relative)
+stone
+great, grown up, nobles, chiefs
+until, as far as, unto, so that
+to
+today
+and
+to rest, to stay quiet
+THE LORD
+from
+rage, fury
+(relative)
+rage
+him
+because of
+this
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+name, appellation, title
+him
+(relative)
+place, region
+that
+the deep, depth, low-lying country
+(relative)
+Achar
+until, as far as, unto, so that
+to
+today
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+not
+fear
+and
+not
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+to lead, to guide, PA to lead, to guide, to drive
+with
+you
+to
+whole
+him
+people
+and
+to do, to make, to work
+nearness, war
+and
+to arise APH raise up, place
+to go up,to ascend
+to
+Ai
+because of
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+him
+in
+hand, side
+you
+to
+king
+(relative)
+Ai
+and
+to
+people
+him
+and
+to
+city, town, province
+him
+and
+to
+earth, land
+him
+and
+to do, to make, to work
+to
+Ai
+and
+to
+king
+her
+as, almost, about
+(relative)
+to do, to make, to work
+to
+Jericho
+and
+to
+king
+her
+in
+only, alone, sole
+then
+spoil,robbery
+and
+sheep, cattle, beasts
+to spoil, to plunder
+to
+you
+and
+to lay wait, to lie in ambush
+to
+you
+lying in wait, lair, ambush
+from
+the back
+her
+(relative)
+city, town, province
+and
+to arise APH raise up, place
+Jesus, Joshua
+and
+whole
+him
+people
+to do, to make, to work
+nearness, war
+to
+to go up,to ascend
+to
+Ai
+and
+to choose
+Jesus, Joshua
+three
+thousand
+man
+(relative)
+mighty, strong
+in
+might, strength, force
+them
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+they, them
+in
+night
+and
+to visit, to command, to entreat, PA to give commission
+they, them
+and
+to say
+to
+them
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+what
+(relative)
+to lay wait, to lie in ambush
+you
+upon, because
+city, town, province
+from
+the back
+her
+(relative)
+city, town, province
+not
+ptc.pss remote, distant (de=RXJQ), PA to put far away, ETHPA to journey afar, to avoid, APH to depart afar, ETTAPH to be removed far
+good, exceedingly, very
+from
+her
+from
+city, town, province
+and
+to be
+PA to get ready, to make preparations, ETHPA to be prepared, to ready oneself
+whole
+you
+and
+I
+and
+people
+(relative)
+there is
+with
+me
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+city, town, province
+and
+what
+(relative)
+to go out, to issue, to proceed forth
+to
+meeting, encounter
+us
+as, almost, about
+(relative)
+in
+first
+behold
+to flee, to avoid
+we
+from
+before
+them
+and
+to go out, to issue, to proceed forth
+after, following
+us
+and
+to urge on, banish, chase away, pursue
+to
+us
+from
+city, town, province
+because of
+(relative)
+to say
+(relative)
+to flee, to avoid
+they, them
+from
+before
+us
+as, almost, about
+(relative)
+in
+first
+and
+we
+behold
+to flee, to avoid
+we
+from
+before
+them
+and
+you
+to arise APH raise up, place
+from
+lying in wait, lair, ambush
+you
+and
+to lay waste, to destroy
+her
+to
+city, town, province
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+her
+THE LORD
+god
+you
+in
+hand, side
+you
+and
+what
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+her
+to
+city, town, province
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+her
+in
+fire
+and
+as, almost, about
+word, saying, thing, affair
+him
+(relative)
+THE LORD
+to do, to make, to work
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+then
+(relative)
+to visit, to command, to entreat, PA to give commission
+you
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+they, them
+Jesus, Joshua
+and
+to go, to walk
+to
+house
+lying in wait, lair, ambush
+and
+to sit, AF, to make dwell, to set, place
+middle
+house
+El (divine name)
+to
+Ai
+from
+setting of sun, west
+her
+(relative)
+city, town, province
+and
+to pass the night
+Jesus, Joshua
+in
+night
+that
+in
+the inside, inward parts
+people
+and
+to go before, do first, PA to rise early
+Jesus, Joshua
+in
+morning
+and
+to count
+him
+to
+people
+and
+to go up,to ascend
+he
+and
+elderly
+(relative)
+Israel
+to
+Ai
+before
+people
+and
+whole
+them
+man
+warlike, brave, pugnacious, contentious, a man of war, warrior
+(relative)
+with
+him
+to go up,to ascend
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+opposite, against, before, towards
+her
+(relative)
+city, town, province
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+from
+the north wind, the north
+her
+(relative)
+Ai
+and
+torrent, wady, gorge, valley
+there is
+to be
+middle
+them
+to
+Ai
+and
+to lead, to guide, PA to lead, to guide, to drive
+Jesus, Joshua
+five
+thousand
+man
+and
+to sit, AF, to make dwell, to set, place
+they, them
+in
+lying in wait, lair, ambush
+middle
+house
+El (divine name)
+to
+Ai
+from
+setting of sun, west
+her
+(relative)
+city, town, province
+and
+to do, to make, to work
+him
+to
+people
+him
+and
+to
+whole
+her
+camp, host
+him
+from
+the north wind, the north
+her
+(relative)
+city, town, province
+and
+to guard, AF to put in a safe place
+foot, heel, hoof, footstep
+from
+setting of sun, west
+her
+(relative)
+city, town, province
+and
+to go, to walk
+Jesus, Joshua
+in
+night
+that
+in
+the inside, inward parts
+people
+and
+when, although, because, while
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+king
+(relative)
+Ai
+PE (ptc. pass. only), to hasten, ETHPE to be disquieted, to be afraid, AF to trouble, disquiet, to hasten, ESTAPH to make haste, to hasten, SAPH to hasten, impel, urge on, ESTAPH to make haste, hasten
+and
+to arise APH raise up, place
+to go out, to issue, to proceed forth
+man, human, mortal
+her
+(relative)
+city, town, province
+to
+meeting, encounter
+him
+(relative)
+Israel
+and
+to be
+whole
+him
+people
+(relative)
+Ai
+in
+plain, broad valley, level tract, expanse
+and
+people
+not
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+to be
+(relative)
+lying in wait, lair, ambush
+there is
+to be
+to
+them
+from
+the back
+her
+(relative)
+city, town, province
+and
+to scatter, PA to scatter abroad, disperse, ETHPA to be scattered abroad, dispersed
+Jesus, Joshua
+and
+whole
+him
+Israel
+from
+before
+them
+to
+to flee, to avoid
+in
+way, road, custom
+(relative)
+desert, wilderness
+and
+shout, APH make cry out
+whole
+him
+people
+(relative)
+Ai
+to
+to urge on, banish, chase away, pursue
+after, following
+them
+and
+to urge on, banish, chase away, pursue
+after, following
+Jesus, Joshua
+and
+to comb, to torture with iron, to make void, ETHPE to be combed, to become empty, PA to empty, lay bare, lay waste, ETHPA to be emptied out, left bare, ETHPAU to be overclouded
+to
+them
+from
+city, town, province
+and
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+man, human, mortal
+in
+Ai
+and
+in
+house
+El (divine name)
+(relative)
+not
+to go out, to issue, to proceed forth
+after, following
+Israel
+and
+to leave, to leave behind, to dismiss, to remit
+her
+to
+city, town, province
+when, although, because, while
+to open, to unlock, to admit
+and
+to urge on, banish, chase away, pursue
+after, following
+Israel
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+in
+lance, spear, javelin
+(relative)
+in
+hand, side
+you
+upon, because
+Ai
+because of
+(relative)
+in
+hand, side
+you
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+her
+and
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+Jesus, Joshua
+in
+lance, spear, javelin
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+to be
+in
+hand, side
+him
+upon, because
+city, town, province
+and
+lying in wait, lair, ambush
+to arise APH raise up, place
+unrestrained, hastily
+from
+place
+him
+and
+to run, to have free course, to be eager, AF to drive, to urge forward
+earnestly
+as, almost, about
+to turn, to return, to repent, ETHPE to betake oneself, to turn towards, PA to restore, AF to cause to turn
+hand, side
+and
+to enter, AF to bring in, to carry in
+to
+city, town, province
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+her
+and
+PE (ptc. pass. only), to hasten, ETHPE to be disquieted, to be afraid, AF to trouble, disquiet, to hasten, ESTAPH to make haste, to hasten, SAPH to hasten, impel, urge on, ESTAPH to make haste, hasten
+and
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+her
+to
+city, town, province
+in
+fire
+and
+to turn, to return, to repent, ETHPE to betake oneself, to turn towards, PA to restore, AF to cause to turn
+man, human, mortal
+(relative)
+Ai
+to
+the back
+them
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+to go up,to ascend
+smoke, fumes
+her
+(relative)
+city, town, province
+them
+until, as far as, unto, so that
+to
+heaven, ceiling, roof, eaves
+and
+not
+APH to be able, enough, to bring to an end, to come to an end
+to
+to flee, to avoid
+to
+here
+and
+to
+here
+and
+people
+(relative)
+Israel
+(relative)
+to flee, to avoid
+to be
+in
+desert, wilderness
+to turn, to change, to move
+upon, because
+persecutor
+him
+and
+Jesus, Joshua
+and
+whole
+him
+Israel
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+to break up, to subjugate, to subdue
+her
+lying in wait, lair, ambush
+to
+city, town, province
+and
+to go up,to ascend
+smoke, fumes
+her
+(relative)
+city, town, province
+and
+to turn, to change, to move
+and
+to lay waste, to destroy
+they, them
+to
+man, human, mortal
+her
+(relative)
+Ai
+and
+these
+to go out, to issue, to proceed forth
+from
+city, town, province
+to
+meeting, encounter
+them
+and
+to be
+to
+them
+man, human, mortal
+her
+(relative)
+Ai
+in
+middle, centre
+him
+(relative)
+Israel
+and
+these
+from this time, from this place
+and
+these
+from this time, from this place
+and
+to lay waste, to destroy
+they, them
+and
+remaining, surviving
+not
+to leave, to leave behind, to dismiss, to remit
+to
+them
+and
+to
+king
+(relative)
+Ai
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+him
+when, although, because, while
+alive
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+him
+at, with, towards, for
+Jesus, Joshua
+and
+when, although, because, while
+to finish, to accomplish, PA to make perfect, to bring to an end
+Israel
+to
+to lay waste, to destroy
+to
+whole
+them
+inhabitant
+her
+(relative)
+Ai
+in
+field, open country
+and
+in
+desert, wilderness
+to urge on, banish, chase away, pursue
+to be
+to
+them
+and
+fall
+whole
+them
+in
+mouth
+(relative)
+sword, blade, dagger
+until, as far as, unto, so that
+(relative)
+to finish, to accomplish, PA to make perfect, to bring to an end
+and
+to turn, to change, to move
+whole
+him
+Israel
+to
+Ai
+and
+to lay waste, to destroy
+her
+in
+mouth
+(relative)
+sword, blade, dagger
+and
+whole
+them
+(relative)
+fall
+in
+day
+that
+from
+man
+and
+until, as far as, unto, so that
+to
+women
+two
+ten
+thousand
+whole
+them
+man, human, mortal
+(relative)
+Ai
+and
+Jesus, Joshua
+not
+to turn, to change, to move
+hand, side
+him
+(relative)
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+to be
+in
+lance, spear, javelin
+until, as far as, unto, so that
+(relative)
+to lay waste, to destroy
+they, them
+to
+whole
+them
+inhabitant
+her
+(relative)
+Ai
+in
+only, alone, sole
+sheep, cattle, beasts
+and
+spoil,robbery
+(relative)
+city, town, province
+that
+to spoil, to plunder
+to
+them
+son
+Israel
+as, almost, about
+word, saying, thing, affair
+him
+(relative)
+THE LORD
+(relative)
+to visit, to command, to entreat, PA to give commission
+to
+Jesus, Joshua
+and
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+her
+Jesus, Joshua
+to
+Ai
+and
+to do, to make, to work
+her
+tell, hill
+sword, blade, dagger
+to
+age, era, eternity
+until, as far as, unto, so that
+to
+today
+and
+to
+king
+her
+(relative)
+Ai
+to lift up, to rise up, ETHPE to stand erect, be erected, PA to make hair stand on end
+him
+upon, because
+wood
+until, as far as, unto, so that
+to
+time, age, era
+(relative)
+evening, eventide
+and
+when, although, because, while
+to set, go down
+sun
+to visit, to command, to entreat, PA to give commission
+Jesus, Joshua
+and
+to descend, PA to bring down, AF to cause to come down
+her
+to
+corpse, body, carcass
+from
+wood
+and
+throw down
+her
+in
+entrance, ingress
+(relative)
+gate, door, entrance
+(relative)
+city, town, province
+and
+to arise APH raise up, place
+upon, because
+him
+heap of stones
+(relative)
+stone
+great, grown up, nobles, chiefs
+until, as far as, unto, so that
+to
+today
+then
+to build,PA to restore,to edify
+Jesus, Joshua
+altar
+to
+THE LORD
+god
+(relative)
+Israel
+in
+mountain
+(relative)
+Gebal
+as, almost, about
+(relative)
+to visit, to command, to entreat, PA to give commission
+Moses
+servant
+him
+(relative)
+THE LORD
+to
+son
+Israel
+as, almost, about
+(relative)
+to write, ETHPE to be written, APH to write
+in
+writing, book, letters
+(relative)
+nome, prefecture, law, custom, usage
+(relative)
+Moses
+altar
+(relative)
+stone
+whole, entire, perfect
+(relative)
+not
+fall
+upon, because
+them
+iron
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+upon, because
+him
+burnt offering
+whole, entire, complete
+to
+THE LORD
+and
+to slay, to slaughter, to offer sacrifice, PA to sacrifice
+sacrifice, offering
+and
+to write, ETHPE to be written, APH to write
+there, yonder
+upon, because
+stone
+these
+(relative)
+altar
+copy, instance of text
+(relative)
+nome, prefecture, law, custom, usage
+him
+(relative)
+Moses
+(relative)
+to write, ETHPE to be written, APH to write
+before
+son
+Israel
+and
+whole
+him
+Israel
+and
+elder
+him
+and
+scribe
+him
+and
+judge
+him
+to arise APH raise up, place
+from this time, from this place
+and
+from this time, from this place
+from
+two
+them
+side
+her
+(relative)
+ark, chest, coffer, coffin
+opposite, against, before, towards
+priest
+and
+Levite
+(relative)
+to lift up, to carry, to break up, to march
+ark, chest, coffer, coffin
+(relative)
+covenant
+(relative)
+THE LORD
+half, part
+them
+opposite, against, before, towards
+mountain
+(relative)
+Gerizim
+and
+half, part
+them
+opposite, against, before, towards
+mountain
+(relative)
+Gebal
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+Moses
+servant
+him
+(relative)
+THE LORD
+to
+to kneel, to bow down, PA to bless
+to
+Israel
+as, almost, about
+(relative)
+from
+first, former
+and
+from
+after, following
+and so, and then, then, afterward
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+Jesus, Joshua
+whole
+them
+word, saying, matter, thing
+him
+(relative)
+nome, prefecture, law, custom, usage
+blessing, gift, present
+and
+curse, malediction, imprecation
+whole
+them
+(relative)
+to write, ETHPE to be written, APH to write
+in
+writing, book, letters
+(relative)
+nome, prefecture, law, custom, usage
+not
+to leave, to leave behind, to dismiss, to remit
+one
+word, saying, thing, affair
+from
+whole
+(relative)
+to visit, to command, to entreat, PA to give commission
+Moses
+(relative)
+not
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+Jesus, Joshua
+before
+whole
+her
+congregation, synagogue
+(relative)
+Israel
+and
+before
+women
+and
+before
+young
+and
+before
+sojourner, foreigner, settler
+(relative)
+middle
+them
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+whole
+them
+king
+(relative)
+there is
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+in
+mountain
+and
+in
+plain, broad valley, level tract, expanse
+and
+in
+whole
+them
+shore, coast
+him
+(relative)
+sea, lake
+great
+(relative)
+opposite, against, before, towards
+Mount Lebanon
+Hittite
+and
+Amorite
+and
+Canaanite
+and
+Perizzite
+and
+Hivite
+and
+Jebusite
+to gather together, to collect, PA to assemble, to call together
+as, almost, about
+one
+to
+to do, to make, to work
+nearness, war
+with
+Jesus, Joshua
+and
+people
+Israel
+from
+one
+mouth
+and
+inhabitant
+(relative)
+Gibeon
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+something, aught
+(relative)
+to do, to make, to work
+Jesus, Joshua
+to
+Ai
+and
+to
+Jericho
+and
+to do, to make, to work
+even
+they
+in
+craft, cunning, acuteness, subtility
+and
+to go, to walk
+provide
+and
+throw down
+sackcloth, haircloth, sack, bag
+worn out, old
+upon, because
+ass
+them
+and
+water skin
+(relative)
+must, wine
+(relative)
+to grow old, waste away, ETHPE to be consumed, PA to fail with age, ETHPA to fail, APH to cause to waste away
+and
+to cleave, to break, to pierce, ETHPE to be pierced through, PA to cut or scratch deeply, to burst through, ETHPA to burst open, to be driven asunder
+and
+to tie up, to bind fast
+and
+shoe, sandal
+(relative)
+to grow old, waste away, ETHPE to be consumed, PA to fail with age, ETHPA to fail, APH to cause to waste away
+and
+sandal
+to put on shoes
+to be
+in
+foot, hoof
+them
+and
+long outer garment
+to grow old, waste away, ETHPE to be consumed, PA to fail with age, ETHPA to fail, APH to cause to waste away
+to clothe oneself, to put on (armour)
+to be
+and
+food, bread
+(relative)
+provision
+them
+to be dried up, to dry up
+and
+to be
+to
+him
+stale
+and
+to come
+at, with, towards, for
+Jesus, Joshua
+to
+camp, host
+to
+Gilgal
+and
+to say
+to
+him
+and
+to
+(relative)
+house
+Israel
+from
+place, region
+distant, far
+to come
+this hour
+to give
+to
+us
+right-hand side
+and
+to say
+(relative)
+house
+Israel
+to
+Hivite
+if, O!
+at, with, towards, for
+us
+to dwell, to stay, to inhabit
+you
+to
+what, why, wherefore
+to be
+to
+you
+right-hand side
+and
+to say
+to
+Jesus, Joshua
+servant
+you
+we
+to say
+to
+them
+Jesus, Joshua
+whence? where?
+you
+and
+from
+whence? where?
+to come
+and
+to say
+to
+him
+from
+earth, land
+and
+from
+place, region
+(relative)
+ptc.pss remote, distant (de=RXJQ), PA to put far away, ETHPA to journey afar, to avoid, APH to depart afar, ETTAPH to be removed far
+good, exceedingly, very
+to come
+servant
+you
+to
+name, appellation, title
+him
+(relative)
+THE LORD
+god
+you
+because of
+(relative)
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+name, appellation, title
+him
+and
+whole
+something, aught
+(relative)
+to do, to make, to work
+in
+Egypt
+and
+whole
+(relative)
+to do, to make, to work
+to
+two
+them
+king
+(relative)
+Amorite
+(relative)
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+to
+Sihon
+king
+(relative)
+Hesbon
+and
+to
+Og
+king
+(relative)
+Matanin (Hebrew Bashan)
+(relative)
+to sit, AF, to make dwell, to set, place
+to be
+in
+Astoreth
+and
+to say
+to
+us
+elder
+and
+whole
+them
+inhabitant
+her
+(relative)
+earth, land
+us
+to take, to receive
+with
+you
+provision
+to
+way, road, custom
+and
+to go, to walk
+to
+meeting, encounter
+them
+and
+to say
+to
+them
+(relative)
+servant
+you
+we
+thence, thereafter, therefore, so then
+to give
+to
+us
+right-hand side
+and
+to say
+to
+Jesus, Joshua
+this
+food, bread
+when, although, because, while
+to be hot, to grow warm
+provide
+him
+from
+house
+in
+day
+(relative)
+to go out, to issue, to proceed forth
+to
+to come
+at, with, towards, for
+you
+and
+this hour
+behold
+to be dried up, to dry up
+and
+to be
+stale
+and
+these
+water skin
+(relative)
+must, wine
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+they, them
+when, although, because, while
+PA to make new, to dedicate, to restore
+and
+behold
+to cleave, to break, to pierce, ETHPE to be pierced through, PA to cut or scratch deeply, to burst through, ETHPA to burst open, to be driven asunder
+and
+these
+long outer garment
+us
+and
+shoe, sandal
+us
+when, although, because, while
+new, recent, fresh
+to take, to receive
+they, them
+to
+us
+and
+behold
+to grow old, waste away, ETHPE to be consumed, PA to fail with age, ETHPA to fail, APH to cause to waste away
+because of
+(relative)
+good, exceedingly, very
+much, many, great
+to be
+way, road, custom
+and
+to take, to receive
+man
+these
+provision
+them
+and
+to go, to walk
+and
+from
+mouth
+him
+(relative)
+THE LORD
+not
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+and
+to do, to make, to work
+to
+them
+Jesus, Joshua
+peace, safety, welfare
+and
+to give
+to
+them
+right-hand side
+to
+life
+them
+and
+to swear
+to
+them
+chief
+(relative)
+congregation, synagogue
+and
+from
+after, following
+three
+day
+from
+after, following
+(relative)
+to give
+to
+them
+right-hand side
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+(relative)
+near
+they, them
+to
+them
+and
+middle
+them
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+and
+to lift up, to carry, to break up, to march
+son
+Israel
+and
+to come
+to
+towns
+them
+in
+day
+(relative)
+three
+and
+name, appellation, title
+(relative)
+towns
+them
+Gibeon
+and
+Kephirah
+and
+Eruth
+and
+Kiriath
+(Kiriath) Naarin
+and
+not
+to kill, PA to kill many
+they, them
+son
+Israel
+because of
+(relative)
+to swear
+to
+them
+chief
+(relative)
+congregation, synagogue
+in
+THE LORD
+god
+(relative)
+Israel
+and
+to murmur
+to be
+and
+clamour
+whole
+her
+congregation, synagogue
+upon, because
+chief
+and
+to say
+chief
+(relative)
+congregation, synagogue
+we
+to swear
+to
+them
+in
+THE LORD
+god
+(relative)
+Israel
+thence, thereafter, therefore, so then
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+we
+to
+to bark, quarrel, fight, APH to do harm, to molest, to irritate
+they, them
+thus, so, such
+then
+to do, to make, to work
+we
+and
+to live, to be alive, AF to keep alive
+we
+to
+them
+(relative)
+not
+to be
+upon, because
+us
+rage
+because of
+oath, curse
+(relative)
+to swear
+to
+them
+and
+to say
+great, grown up, nobles, chiefs
+to
+son
+Israel
+to live, to be alive, AF to keep alive
+and
+to be
+to gather, to pick up, to collect
+wood
+and
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+water
+to
+whole
+her
+congregation, synagogue
+and
+to be
+to gather, to pick up, to collect
+wood
+and
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+water
+to
+whole
+her
+congregation, synagogue
+as, almost, about
+this
+(relative)
+to say
+to
+them
+chief
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+they, them
+Jesus, Joshua
+and
+to say
+to
+them
+to
+what, why, wherefore
+to deceive, beguile, ETHPE to act deceitfully, PA to beguile, APH to deceive, suppose
+us
+and
+to say
+to
+us
+(relative)
+good, exceedingly, very
+distant, far
+we
+from
+you
+and
+behold
+at, with, towards, for
+us
+to dwell, to stay, to inhabit
+you
+thence, thereafter, therefore, so then
+to be
+to curse
+and
+not
+to depart, to be wanting
+from
+you
+man
+to gather, to pick up, to collect
+wood
+and
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+water
+to
+house
+him
+(relative)
+god
+and
+to answer
+and
+to say
+to
+Jesus, Joshua
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+to
+servant
+you
+something, aught
+(relative)
+to visit, to command, to entreat, PA to give commission
+THE LORD
+god
+you
+to
+Moses
+servant
+him
+to
+only ipf to give, to make to be, to put
+to
+you
+whole
+her
+earth, land
+and
+to
+to perish, to come to naught. AF to destroy
+to
+whole
+them
+inhabitant
+her
+(relative)
+earth, land
+from
+before
+you
+and
+fear
+good, exceedingly, very
+from
+breath, animal soul
+us
+and
+to do, to make, to work
+thus, so, such
+and
+this hour
+behold
+in
+hand, side
+you
+we
+as, almost, about
+this
+(relative)
+fair, good, lovely, pleasing
+in
+eye
+you
+to
+to do, to make, to work
+to
+us
+to do, to make, to work
+to
+us
+and
+to do, to make, to work
+to
+them
+thus, so, such
+and
+PA to deliver, to set free, pss.ptc. guiltless
+they, them
+from
+hand, side
+(relative)
+Israel
+and
+not
+to kill, PA to kill many
+they, them
+and
+to do, to make, to work
+they, them
+Jesus, Joshua
+in
+him
+in
+day
+that
+to gather, to pick up, to collect
+wood
+and
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+water
+to
+congregation, synagogue
+and
+to
+altar
+him
+(relative)
+THE LORD
+until, as far as, unto, so that
+to
+today
+in
+place, region
+(relative)
+to be willing, to wish, to seek to
+THE LORD
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+Adonizedek
+king
+(relative)
+Jerusalem
+(relative)
+to break up, to subjugate, to subdue
+her
+Jesus, Joshua
+to
+Ai
+and
+sword, blade, dagger
+her
+and
+as, almost, about
+this
+(relative)
+to do, to make, to work
+to
+Jericho
+and
+to
+king
+her
+thus, so, such
+to do, to make, to work
+to
+Ai
+and
+to
+king
+her
+and
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+inhabitant
+(relative)
+Gibeon
+with
+Israel
+and
+to be
+middle
+them
+fear
+good, exceedingly, very
+because of
+(relative)
+city, town, province
+she
+great
+Gibeon
+as, almost, about
+one
+from
+city, town, province
+(relative)
+reign, kingdom, majesty
+and
+great
+to be
+from
+Ai
+and
+whole
+them
+man
+her
+mighty, strong
+to be
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+Adonizedek
+king
+(relative)
+Jerusalem
+at, with, towards, for
+Hoham
+king
+(relative)
+Hebron
+and
+at, with, towards, for
+Baran
+king
+(relative)
+Jarmuth
+and
+at, with, towards, for
+Naphia
+king
+(relative)
+Lachish
+and
+at, with, towards, for
+Debir
+king
+(relative)
+Eglon
+and
+to send, PA to strip, to despoil
+to
+them
+to go up,to ascend
+at, with, towards, for
+me
+and
+to be
+to
+me
+help
+and
+to beat, to strive, to contend, ETHPE to be in an uproar, to make great effort, ETHPA to strive, to fight against
+with
+Gibeon
+because of
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+to
+her
+with
+Jesus, Joshua
+and
+with
+Israel
+and
+to gather together, to collect, PA to assemble, to call together
+and
+to go up,to ascend
+five
+king
+them
+(relative)
+Amorite
+king
+(relative)
+Jerusalem
+and
+king
+(relative)
+Hebron
+and
+king
+(relative)
+Jarmuth
+and
+king
+(relative)
+Lachish
+and
+king
+(relative)
+Eglon
+they
+and
+whole
+them
+camp, host
+them
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+upon, because
+Gibeon
+and
+to do, to make, to work
+with
+her
+nearness, war
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+man, human, mortal
+(relative)
+Gibeon
+at, with, towards, for
+Jesus, Joshua
+to
+camp, host
+to
+Gilgal
+and
+to say
+to
+him
+not
+be loose
+hand, side
+you
+from
+servant
+you
+because of
+(relative)
+to gather together, to collect, PA to assemble, to call together
+upon, because
+us
+whole
+them
+king
+them
+(relative)
+Amorite
+(relative)
+to dwell, to stay, to inhabit
+in
+mountain
+and
+to go up,to ascend
+Jesus, Joshua
+from
+Gilgal
+he
+and
+whole
+him
+people
+warlike, brave, pugnacious, contentious, a man of war, warrior
+(relative)
+with
+him
+and
+whole
+them
+mighty, strong
+might, strength, force
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+not
+fear
+from
+them
+because of
+(relative)
+in
+hand, side
+you
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+they, them
+and
+one
+from
+them
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+to arise APH raise up, place
+before
+you
+and
+to come
+at, with, towards, for
+them
+Jesus, Joshua
+from
+stillness, calm, stupor, silence
+whole
+him
+night
+to go up,to ascend
+to be
+from
+Gilgal
+and
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+they, them
+THE LORD
+before
+Israel
+and
+to strike, to beat, to wound
+they, them
+blow, wound, sore, sickness, plague
+great
+in
+Gibeon
+(relative)
+house
+(Beyt-) Horon
+and
+to urge on, banish, chase away, pursue
+they, them
+in
+way, road, custom
+(relative)
+ascent, eminence, stairs
+(relative)
+house
+(Beyt-) Horon
+and
+to lay waste, to destroy
+they, them
+until, as far as, unto, so that
+to
+Akar
+and
+until, as far as, unto, so that
+to
+Makar
+and
+when, although, because, while
+to flee, to avoid
+from
+before
+Israel
+and
+to descend, PA to bring down, AF to cause to come down
+to be
+in
+descent
+(relative)
+house
+(Beyt-) Horon
+and
+THE LORD
+to hurl, to shoot, ETHPE to be shot, discharged, to be rejected, expelled, PA to hurl, to cast off, ETHPA to be cast out, APH to cast out
+upon, because
+them
+stone
+great, grown up, nobles, chiefs
+from
+heaven, ceiling, roof, eaves
+until, as far as, unto, so that
+to
+Akar
+and
+to die, AF to put to death
+and
+much, many, great
+to be
+(relative)
+to die, AF to put to death
+in
+stone
+(relative)
+speckled, spotted
+from
+those
+(relative)
+to lay waste, to destroy
+son
+Israel
+in
+sword, blade, dagger
+then
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+Jesus, Joshua
+before
+THE LORD
+in
+day
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+THE LORD
+to
+Amorite
+before
+Israel
+and
+to say
+Jesus, Joshua
+before
+son
+Israel
+sun
+in
+Gibeon
+PA to wait for, to stay, to remain
+and
+you
+moon
+in
+plain, broad valley, level tract, expanse
+(relative)
+Elon(-beth-hanan)
+and
+PA to wait for, to stay, to remain
+sun
+and
+moon
+to arise APH raise up, place
+until, as far as, unto, so that
+(relative)
+to bring forth, to requite, to repay, to recompense
+people
+from
+adversary
+him
+and
+behold
+to write, ETHPE to be written, APH to write
+in
+writing, book, letters
+(relative)
+praise
+and
+to arise APH raise up, place
+sun
+in
+portion, division, dissension, duplicity
+heaven, ceiling, roof, eaves
+and
+not
+PE (ptc. pass. only), to hasten, ETHPE to be disquieted, to be afraid, AF to trouble, disquiet, to hasten, ESTAPH to make haste, to hasten, SAPH to hasten, impel, urge on, ESTAPH to make haste, hasten
+to
+to set, go down
+and
+to be
+as, almost, about
+day
+whole, entire, complete
+and
+not
+to be
+as, almost, about
+day
+that
+before
+him
+or, either
+after, following
+him
+as, almost, about
+this
+(relative)
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+THE LORD
+in
+voice, sound
+him
+(relative)
+Jesus, Joshua
+because of
+(relative)
+THE LORD
+to do, to make, to work
+to be
+nearness, war
+to
+Israel
+and
+to turn, to change, to move
+Jesus, Joshua
+and
+whole
+him
+Israel
+with
+him
+to
+camp, host
+to
+Gilgal
+and
+to flee, to avoid
+five
+king
+these
+and
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+in
+cave, den
+(relative)
+Makar
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+to
+Jesus, Joshua
+and
+to say
+to
+him
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+five
+king
+these
+when, although, because, while
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+in
+cave, den
+(relative)
+Makar
+and
+to say
+Jesus, Joshua
+roll
+stone
+great, grown up, nobles, chiefs
+and
+throw down
+upon, because
+gate, door, entrance
+her
+(relative)
+cave, den
+and
+to leave, to leave behind, to dismiss, to remit
+there, yonder
+man
+(relative)
+to guard, AF to put in a safe place
+they, them
+you
+then
+not
+to arise APH raise up, place
+if, O!
+not
+to urge on, banish, chase away, pursue
+after, following
+adversary
+you
+and
+to tread, AF to come up, to follow closely, to overtake
+they, them
+and
+not
+to leave, to leave behind, to dismiss, to remit
+they, them
+(relative)
+to enter, AF to bring in, to carry in
+to
+city, town, province
+because of
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+they, them
+THE LORD
+god
+you
+in
+hand, side
+you
+and
+when, although, because, while
+to finish, to accomplish, PA to make perfect, to bring to an end
+Jesus, Joshua
+and
+son
+Israel
+to
+to lay waste, to destroy
+they, them
+sword, blade, dagger
+great
+until, as far as, unto, so that
+(relative)
+to finish, to accomplish, PA to make perfect, to bring to an end
+and
+remaining, surviving
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+from
+them
+and
+to enter, AF to bring in, to carry in
+to
+those
+to rebel, to go beyond, to surpass
+(relative)
+Gibeon
+to
+walled city, fortified place
+them
+then
+to turn, to change, to move
+whole
+him
+people
+to
+camp, host
+at, with, towards, for
+Jesus, Joshua
+to
+Makar
+in
+peace, safety, welfare
+and
+not
+to bark, quarrel, fight, APH to do harm, to molest, to irritate
+from
+(relative)
+house
+Israel
+man
+in
+tongue, speech, language
+him
+and
+to say
+Jesus, Joshua
+to open, to unlock, to admit
+mouth
+her
+(relative)
+cave, den
+and
+to go out, to issue, to proceed forth
+to
+me
+to
+five
+them
+king
+these
+from
+cave, den
+and
+to do, to make, to work
+as, almost, about
+(relative)
+to say
+to
+them
+Jesus, Joshua
+and
+to go out, to issue, to proceed forth
+at, with, towards, for
+him
+to
+five
+them
+king
+from
+cave, den
+to
+king
+(relative)
+Jerusalem
+and
+to
+king
+(relative)
+Hebron
+and
+to
+king
+(relative)
+Jarmuth
+and
+to
+king
+(relative)
+Lachish
+and
+to
+king
+(relative)
+Eglon
+and
+when, although, because, while
+to go out, to issue, to proceed forth
+they, them
+to
+king
+these
+at, with, towards, for
+Jesus, Joshua
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+Jesus, Joshua
+to
+whole
+them
+ruler
+to do, to make, to work
+nearness, war
+(relative)
+PA to go, to walk
+with
+him
+and
+to say
+to
+them
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+and
+to put, to lay up, to constitute
+foot, hoof
+you
+upon, because
+neck, throat
+them
+(relative)
+king
+these
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+and
+to put, to lay up, to constitute
+foot, hoof
+them
+upon, because
+neck, throat
+them
+(relative)
+king
+these
+and
+to say
+to
+them
+Jesus, Joshua
+not
+fear
+and
+not
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+because of
+(relative)
+thus, so, such
+to do, to make, to work
+THE LORD
+to
+whole
+them
+adversary
+you
+(relative)
+to beat, to strive, to contend, ETHPE to be in an uproar, to make great effort, ETHPA to strive, to fight against
+you
+with
+them
+and
+after, following
+then
+to kill, PA to kill many
+they, them
+Jesus, Joshua
+and
+to lift up, to rise up, ETHPE to stand erect, be erected, PA to make hair stand on end
+they, them
+upon, because
+five
+wood
+and
+to be
+to lift up, to rise up, ETHPE to stand erect, be erected, PA to make hair stand on end
+upon, because
+wood
+until, as far as, unto, so that
+to
+evening, eventide
+and
+in
+time, age, era
+(relative)
+setting of sun, west
+sun
+to visit, to command, to entreat, PA to give commission
+Jesus, Joshua
+and
+to descend, PA to bring down, AF to cause to come down
+they, them
+from
+wood
+to
+to lift up, to rise up, ETHPE to stand erect, be erected, PA to make hair stand on end
+and
+throw down
+they, them
+in
+cave, den
+(relative)
+to hide, to hide oneself, PA to hide, ETHPA to hide oneself, AF to hide, secrete
+to be
+in
+her
+and
+to put, to lay up, to constitute
+stone
+great, grown up, nobles, chiefs
+upon, because
+mouth
+her
+(relative)
+cave, den
+until, as far as, unto, so that
+to
+today
+and
+to
+Makar
+to break up, to subjugate, to subdue
+Jesus, Joshua
+in
+day
+that
+and
+to lay waste, to destroy
+her
+in
+mouth
+(relative)
+sword, blade, dagger
+and
+to
+king
+her
+and
+to
+whole
+(relative)
+there is
+in
+her
+to kill, PA to kill many
+and
+not
+to leave, to leave behind, to dismiss, to remit
+from
+them
+remaining, surviving
+and
+to do, to make, to work
+to
+king
+(relative)
+Makar
+as, almost, about
+this
+(relative)
+to do, to make, to work
+to
+king
+(relative)
+Jericho
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+Jesus, Joshua
+and
+whole
+him
+Israel
+with
+him
+from
+Makar
+to
+Laban
+and
+to beat, to strive, to contend, ETHPE to be in an uproar, to make great effort, ETHPA to strive, to fight against
+with
+Libnah
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+her
+THE LORD
+even
+to
+her
+in
+hand, side
+(relative)
+Israel
+and
+to lay waste, to destroy
+her
+and
+to
+king
+her
+in
+mouth
+(relative)
+sword, blade, dagger
+and
+to
+whole
+breath, animal soul
+(relative)
+there is
+to be
+in
+her
+and
+not
+to leave, to leave behind, to dismiss, to remit
+in
+her
+remaining, surviving
+and
+to do, to make, to work
+Jesus, Joshua
+to
+king
+her
+as, almost, about
+(relative)
+to do, to make, to work
+to
+king
+(relative)
+Jericho
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+Jesus, Joshua
+and
+whole
+him
+Israel
+with
+him
+from
+Libnah
+to
+Lachish
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+upon, because
+her
+and
+to do, to make, to work
+with
+her
+nearness, war
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+her
+THE LORD
+to
+Lachish
+in
+hand, side
+(relative)
+Israel
+and
+to break up, to subjugate, to subdue
+her
+in
+day
+(relative)
+two
+and
+to lay waste, to destroy
+her
+in
+mouth
+(relative)
+sword
+and
+to
+whole
+them
+breath, animal soul
+(relative)
+there is
+to be
+in
+her
+as, almost, about
+(relative)
+to do, to make, to work
+to
+Libnah
+then
+to go up,to ascend
+Harmon
+king
+(relative)
+Gezer
+to
+to help, to assist, PA to help, to favour, to be useful, (with BTR) to take the part of
+her
+to
+Lachish
+and
+to lay waste, to destroy
+him
+Jesus, Joshua
+even
+to
+him
+and
+to
+people
+him
+in
+mouth
+(relative)
+sword, blade, dagger
+and
+not
+to leave, to leave behind, to dismiss, to remit
+to
+him
+remaining, surviving
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+Jesus, Joshua
+and
+whole
+him
+Israel
+with
+him
+from
+Lachish
+to
+Eglon
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+upon, because
+her
+and
+to do, to make, to work
+with
+her
+nearness, war
+and
+to break up, to subjugate, to subdue
+her
+in
+day
+that
+and
+to lay waste, to destroy
+her
+in
+mouth
+(relative)
+sword
+and
+to
+whole
+breath, animal soul
+(relative)
+there is
+to be
+in
+her
+as, almost, about
+this
+(relative)
+to do, to make, to work
+to
+Lachish
+and
+to go up,to ascend
+Jesus, Joshua
+and
+whole
+him
+Israel
+with
+him
+from
+Eglon
+to
+Hebron
+and
+to do, to make, to work
+with
+her
+nearness, war
+and
+to break up, to subjugate, to subdue
+her
+and
+to lay waste, to destroy
+her
+in
+mouth
+(relative)
+sword
+and
+to
+king
+her
+and
+to
+whole
+them
+towns
+[possessive]
+him
+and
+to
+whole
+them
+breath, animal soul
+(relative)
+there is
+to be
+in
+her
+and
+not
+to leave, to leave behind, to dismiss, to remit
+from
+them
+remaining, surviving
+as, almost, about
+(relative)
+to do, to make, to work
+to
+Eglon
+and
+to
+whole
+breath, animal soul
+(relative)
+there is
+to be
+in
+her
+(relative)
+to lay waste, to destroy
+they, them
+and
+to turn, to change, to move
+Jesus, Joshua
+and
+whole
+him
+Israel
+with
+him
+to
+Debir
+and
+to beat, to strive, to contend, ETHPE to be in an uproar, to make great effort, ETHPA to strive, to fight against
+with
+her
+and
+to break up, to subjugate, to subdue
+her
+and
+to
+king
+her
+and
+to
+whole
+them
+towns
+her
+and
+to lay waste, to destroy
+they, them
+in
+mouth
+(relative)
+sword, blade, dagger
+and
+to lay waste, to destroy
+to
+whole
+breath, animal soul
+(relative)
+in
+her
+and
+not
+to leave, to leave behind, to dismiss, to remit
+from
+them
+remaining, surviving
+as, almost, about
+(relative)
+to do, to make, to work
+to
+Hebron
+thus, so, such
+to do, to make, to work
+to
+Debir
+and
+to
+king
+her
+and
+as, almost, about
+this
+(relative)
+to do, to make, to work
+to
+Libnah
+and
+to
+king
+her
+and
+to lay waste, to destroy
+her
+Jesus, Joshua
+to
+whole
+her
+earth, land
+to
+mountain
+and
+to
+the south
+and
+to
+plain, broad valley, level tract, expanse
+and
+to
+Ashdod
+and
+to
+whole
+them
+king
+them
+and
+not
+to leave, to leave behind, to dismiss, to remit
+from
+them
+remaining, surviving
+and
+to
+whole
+him
+might, strength, force
+them
+to lay waste, to destroy
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+him
+THE LORD
+god
+(relative)
+Israel
+and
+to lay waste, to destroy
+they, them
+Jesus, Joshua
+from
+Rekem
+(relative)
+valley
+until, as far as, unto, so that
+to
+Gaza
+and
+to
+whole
+her
+earth, land
+(relative)
+Goshen
+and
+until, as far as, unto, so that
+to
+Gibeon
+and
+to
+whole
+them
+king
+these
+and
+to
+place, region
+them
+to break up, to subjugate, to subdue
+Jesus, Joshua
+in
+time, age, era
+one
+because of
+(relative)
+THE LORD
+god
+(relative)
+Israel
+with
+him
+and
+he
+he
+to do, to make, to work
+nearness, war
+to
+Israel
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+Nabin
+king
+(relative)
+Hazor
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+upon, because
+Jobab
+king
+(relative)
+Maron
+and
+upon, because
+king
+(relative)
+Samaria
+and
+upon, because
+king
+(relative)
+Achshaph
+and
+upon, because
+king
+(relative)
+to
+the north wind, the north
+from
+him
+(relative)
+in
+mountain
+and
+in
+the south
+and
+in
+plain, broad valley, level tract, expanse
+(relative)
+Kinnereth
+and
+in
+plain, broad valley, level tract, expanse
+her
+and
+in
+region of Dor
+(relative)
+from
+setting of sun, west
+and
+to
+Canaanite
+(relative)
+from
+sunrise, east, Persian empire, Syria
+and
+from
+setting of sun, west
+and
+Amorite
+and
+Hittite
+and
+Perizzite
+and
+Jebusite
+(relative)
+in
+mountain
+and
+to
+Hivite
+(relative)
+under, beneath
+mountain
+(relative)
+Hermon
+(relative)
+in
+earth, land
+(relative)
+the sense of sight, one who observes, a watchman
+and
+to go out, to issue, to proceed forth
+they
+and
+whole
+them
+camp, host
+them
+with
+them
+much, many, great
+as, almost, about
+sand, gravel
+(relative)
+upon, because
+lip, brim, edge
+him
+(relative)
+sea, lake
+and
+horse
+and
+two-horse chariot
+multitude, great part
+(relative)
+good, exceedingly, very
+and
+PA to appoint a time or place for meeting, ETHPA to meet at a fixed time or place, assemble
+whole
+them
+king
+these
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+as, almost, about
+one
+upon, because
+water
+(relative)
+Maron
+and
+PA to get ready, to make preparations, ETHPA to be prepared, to ready oneself
+to
+to do, to make, to work
+nearness, war
+with
+Israel
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+not
+fear
+from
+them
+because of
+(relative)
+the after time, future, tomorrow
+to
+a moment, minute
+this
+to do, to make, to work
+I
+to
+them
+to
+whole
+them
+when, although, because, while
+to lay waste, to destroy
+before
+son
+Israel
+and
+horse
+them
+to finish, to accomplish, PA to make perfect, to bring to an end
+and
+two-horse chariot
+them
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+in
+fire
+and
+to come
+Jesus, Joshua
+to
+water
+(relative)
+Maron
+from
+stillness, calm, stupor, silence
+he
+and
+whole
+him
+people
+to do, to make, to work
+nearness, war
+(relative)
+there is
+to be
+with
+him
+and
+fall
+in
+them
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+they, them
+THE LORD
+in
+hand, side
+(relative)
+Israel
+and
+to lay waste, to destroy
+they, them
+and
+to urge on, banish, chase away, pursue
+they, them
+until, as far as, unto, so that
+to
+Sidon
+great
+and
+until, as far as, unto, so that
+to
+house
+a gathering together, congregation
+(relative)
+water
+and
+until, as far as, unto, so that
+to
+plain, broad valley, level tract, expanse
+(relative)
+Mizpah
+(relative)
+in
+sunrise, east, Persian empire, Syria
+and
+to lay waste, to destroy
+they, them
+and
+not
+to leave, to leave behind, to dismiss, to remit
+from
+them
+remaining, surviving
+and
+to do, to make, to work
+to
+them
+Jesus, Joshua
+as, almost, about
+(relative)
+to say
+to
+him
+THE LORD
+horse
+them
+to finish, to accomplish, PA to make perfect, to bring to an end
+and
+two-horse chariot
+them
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+in
+fire
+and
+to turn, to change, to move
+Jesus, Joshua
+in
+time, age, era
+that
+and
+to break up, to subjugate, to subdue
+to
+Hazor
+and
+to
+king
+her
+to kill, PA to kill many
+in
+sword, blade, dagger
+because of
+(relative)
+from
+first, former
+Hazor
+to be
+head, top, summit
+them
+(relative)
+reign, kingdom, majesty
+these
+and
+to lay waste, to destroy
+to
+whole
+breath, animal soul
+(relative)
+in
+her
+in
+mouth
+(relative)
+sword, blade, dagger
+and
+not
+to leave, to leave behind, to dismiss, to remit
+from
+them
+breath, living being, soul
+and
+to
+Hazor
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+in
+fire
+and
+to
+whole
+them
+city, town, province
+(relative)
+king
+these
+and
+to
+king
+them
+to break up, to subjugate, to subdue
+Jesus, Joshua
+and
+to lay waste, to destroy
+they, them
+in
+mouth
+(relative)
+sword, blade, dagger
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+him
+Moses
+servant
+him
+(relative)
+THE LORD
+and
+to
+whole
+them
+towns
+(relative)
+to arise APH raise up, place
+upon, because
+tell, hill
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+they, them
+Israel
+and
+to
+Hazor
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+Jesus, Joshua
+and
+to
+whole
+her
+spoil,robbery
+(relative)
+city, town, province
+these
+and
+sheep, cattle, beasts
+to spoil, to plunder
+to
+them
+son
+Israel
+and
+to
+whole
+them
+son
+man, human, mortal
+to lay waste, to destroy
+in
+mouth
+(relative)
+sword
+until, as far as, unto, so that
+(relative)
+to finish, to accomplish, PA to make perfect, to bring to an end
+they, them
+and
+not
+to leave, to leave behind, to dismiss, to remit
+from
+them
+breath, living being, soul
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+THE LORD
+to
+Moses
+servant
+him
+thus, so, such
+to visit, to command, to entreat, PA to give commission
+him
+Moses
+to
+Jesus, Joshua
+and
+thus, so, such
+to do, to make, to work
+Jesus, Joshua
+and
+not
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+word, saying, thing, affair
+from
+whole
+something, aught
+(relative)
+to visit, to command, to entreat, PA to give commission
+THE LORD
+to
+Moses
+and
+to take, to receive
+her
+Jesus, Joshua
+to
+whole
+her
+earth, land
+this
+(relative)
+mountain
+and
+to
+whole
+her
+the south
+and
+to
+whole
+her
+earth, land
+(relative)
+plain, broad valley, level tract, expanse
+and
+to
+mountain
+whole
+them
+and
+to
+noise, crash, thunderbolt, rift, fissure, seaweed
+them
+from
+mountain
+(relative)
+Peleg
+and
+to go up,to ascend
+to
+Seir
+and
+until, as far as, unto, so that
+to
+Gudgodah
+(relative)
+plain, broad valley, level tract, expanse
+(relative)
+Mount Lebanon
+(relative)
+under, beneath
+mountain
+(relative)
+Hermon
+and
+to
+whole
+them
+king
+them
+to break up, to subjugate, to subdue
+and
+to kill, PA to kill many
+they, them
+Jesus, Joshua
+and
+day
+much, many, great
+to do, to make, to work
+Jesus, Joshua
+nearness, war
+with
+king
+whole
+them
+these
+and
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+town, village
+(relative)
+not
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+to
+son
+Israel
+and
+to lay waste, to destroy
+her
+if, O!
+not
+if, O!
+Hivite
+(relative)
+to sit, AF, to make dwell, to set, place
+in
+Gibeon
+(relative)
+to live, to be alive, AF to keep alive
+they, them
+Jesus, Joshua
+and
+to leave, to leave behind, to dismiss, to remit
+they, them
+Jesus, Joshua
+(relative)
+to labour, to cultivate, to worship
+to
+Israel
+and
+to
+whole
+them
+reign, kingdom, majesty
+these
+to take captive, to lead away captive
+they, them
+Jesus, Joshua
+and
+to lay waste, to destroy
+they, them
+because of
+(relative)
+from
+before
+THE LORD
+to be
+this
+(relative)
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+heart
+them
+(relative)
+to go out, to issue, to proceed forth
+to
+nearness, war
+upon, because
+Israel
+because of
+(relative)
+to lay waste, to destroy
+they, them
+and
+not
+to be
+upon, because
+them
+supplication
+because of
+(relative)
+to perish, to come to naught. AF to destroy
+they, them
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+THE LORD
+to
+Moses
+and
+to come
+Jesus, Joshua
+in
+time, age, era
+that
+and
+to lay waste, to destroy
+to
+mighty, strong
+(relative)
+in
+mountain
+from
+Hebron
+and
+from
+Debir
+and
+from
+Gebal
+and
+from
+whole
+him
+mountain
+(relative)
+Judah
+and
+from
+whole
+him
+mountain
+(relative)
+Israel
+with
+city, town, province
+them
+to lay waste, to destroy
+they, them
+Jesus, Joshua
+and
+not
+ETHPEAL to remain, to delay
+man
+in
+earth, land
+(relative)
+son
+Israel
+if, O!
+not
+if, O!
+in
+Gaza
+and
+in
+Gath
+and
+in
+Ashdod
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+and
+to take, to receive
+her
+Jesus, Joshua
+to
+whole
+her
+earth, land
+as, almost, about
+(relative)
+to say
+THE LORD
+to
+Moses
+and
+to give
+her
+Jesus, Joshua
+inheritance, portion, lot
+to
+Israel
+in
+portion, division, dissension, duplicity
+to
+rod, stripe, tribe
+them
+and
+earth, land
+to rest, to stay quiet
+from
+nearness, war
+and
+these
+king
+(relative)
+earth, land
+(relative)
+to lay waste, to destroy
+son
+Israel
+and
+to be heir, to inherit
+place, region
+them
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+from
+sunrise, east, Persian empire, Syria
+sun
+from
+torrent, wady, gorge, valley
+(relative)
+Arnon
+and
+until, as far as, unto, so that
+to
+mountain
+(relative)
+Hermon
+and
+whole
+her
+noise, crash, thunderbolt, rift, fissure, seaweed
+(relative)
+in
+sunrise, east, Persian empire, Syria
+and
+to
+Sihon
+king
+(relative)
+Amorite
+(relative)
+to sit, AF, to make dwell, to set, place
+to be
+in
+Hesbon
+and
+ruling
+to be
+from
+Aroer
+(relative)
+upon, because
+lip, brim, edge
+(relative)
+torrent, wady, gorge, valley
+(relative)
+Arnon
+and
+the inside, inward parts
+him
+(relative)
+torrent, wady, gorge, valley
+and
+half, part
+her
+(relative)
+Gilead
+and
+until, as far as, unto, so that
+to
+Aphek
+torrent, wady, gorge, valley
+(relative)
+limit, boundary, precept, regulation
+(relative)
+son
+Ammon
+and
+plain, broad valley, level tract, expanse
+until, as far as, unto, so that
+to
+sea, lake
+(relative)
+Kinnereth
+from
+sunrise, east, Persian empire, Syria
+and
+until, as far as, unto, so that
+to
+sea, lake
+(relative)
+plain, broad valley, level tract, expanse
+sea, lake
+(relative)
+salt
+(relative)
+in
+sunrise, east, Persian empire, Syria
+(relative)
+way, road, custom
+(relative)
+house
+desert
+and
+from
+Teman
+(relative)
+under, beneath
+Ashdoth
+high place, hill
+and
+limit, boundary, precept, regulation
+(relative)
+Og
+king
+(relative)
+Bashan
+from
+generation, family, race, tribe
+(relative)
+mighty, strong
+(relative)
+to sit, AF, to make dwell, to set, place
+to be
+in
+Astoreth
+and
+in
+Edrei
+and
+ruling
+to be
+in
+mountain
+(relative)
+desert
+and
+in
+Salecah
+and
+in
+whole
+her
+Bashan
+until, as far as, unto, so that
+to
+limit, boundary, precept, regulation
+(relative)
+Endor
+and
+(relative)
+Maacath (place)
+and
+half, part
+her
+(relative)
+Gilead
+and
+limit, boundary, precept, regulation
+him
+(relative)
+Sihon
+king
+(relative)
+Hesbon
+(relative)
+to kill, PA to kill many
+him
+Moses
+servant
+him
+(relative)
+THE LORD
+and
+to give
+him
+heritage, possession
+to
+Reuben
+and
+to
+Gad
+and
+to
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+and
+these
+king
+(relative)
+earth, land
+(relative)
+to lay waste, to destroy
+Jesus, Joshua
+and
+son
+Israel
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+from
+Arabah
+and
+from
+Gilgal
+(relative)
+plain, broad valley, level tract, expanse
+(relative)
+Mount Lebanon
+and
+until, as far as, unto, so that
+to
+mountain
+(relative)
+Peleg
+and
+to go up,to ascend
+to
+Seir
+and
+to give
+her
+Jesus, Joshua
+to
+rod, stripe, tribe
+(relative)
+Israel
+to
+heritage, possession
+in
+portion, division, dissension, duplicity
+them
+in
+mountain
+and
+in
+plain, broad valley, level tract, expanse
+and
+in
+Arabah
+and
+in
+Ashdod
+and
+in
+desert, wilderness
+and
+in
+the south
+and
+Hittite
+and
+Amorite
+and
+Canaanite
+and
+Perizzite
+and
+Hivite
+and
+Jebusite
+and
+these
+king
+(relative)
+earth, land
+(relative)
+to lay waste, to destroy
+Jesus, Joshua
+king
+one
+(relative)
+Jericho
+king
+one
+(relative)
+Ai
+(relative)
+upon, because
+bank, shore
+house
+El (divine name)
+king
+one
+(relative)
+Jerusalem
+king
+one
+(relative)
+Hebron
+king
+one
+(relative)
+Jarmuth
+king
+one
+(relative)
+Lachish
+king
+one
+(relative)
+Eglon
+king
+one
+(relative)
+Gezer
+king
+one
+(relative)
+Debir
+king
+one
+(relative)
+Hormah
+king
+one
+(relative)
+Geder
+king
+one
+(relative)
+Adar
+king
+one
+(relative)
+Libnah
+king
+one
+(relative)
+Arlam
+king
+one
+(relative)
+Makar
+king
+one
+(relative)
+house
+El (divine name)
+king
+one
+(relative)
+Tappuah
+king
+one
+(relative)
+Hepher
+king
+one
+(relative)
+Aphek
+king
+one
+(relative)
+Neshron
+king
+one
+(relative)
+Madon
+king
+one
+(relative)
+Hazor
+king
+one
+(relative)
+Samaria
+and
+(relative)
+Maron
+king
+one
+(relative)
+Achshaph
+king
+one
+(relative)
+Taanach
+king
+one
+(relative)
+Migdol
+king
+one
+(relative)
+Rekem
+king
+one
+(relative)
+Yokneam
+and
+(relative)
+Carmel
+king
+one
+(relative)
+Dor
+and
+(relative)
+region of Dor
+king
+one
+(relative)
+the deep, depth, low-lying country
+and
+(relative)
+Gilgal
+king
+one
+(relative)
+Tirzah
+whole
+them
+king
+(relative)
+to lay waste, to destroy
+Jesus, Joshua
+three
+and
+one
+and
+Jesus, Joshua
+to grow old, to collect, to pick up,Pass ptcp de=QCJC, ETHPE to be the eldest, PA to place as eldest, to give precedence
+and
+to enter, AF to bring in, to carry in
+in
+year
+and
+to say
+to
+him
+THE LORD
+behold
+you
+to grow old, to collect, to pick up,Pass ptcp de=QCJC, ETHPE to be the eldest, PA to place as eldest, to give precedence
+and
+to enter, AF to bring in, to carry in
+in
+year
+and
+earth, land
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+much, many, great
+she
+good, exceedingly, very
+to
+to be heir, to inherit
+her
+this
+earth, land
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+in
+whole
+him
+round
+(relative)
+Philistine
+and
+in
+whole
+him
+place, region
+(relative)
+Endor
+from
+Shihor
+(relative)
+before
+Egypt
+and
+until, as far as, unto, so that
+to
+limit, boundary, precept, regulation
+(relative)
+Ekron
+(relative)
+in
+the north wind, the north
+(relative)
+Canaanite
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+and
+five
+tyrant, lord, ruler, rebel
+them
+(relative)
+Philistine
+Gazan
+and
+Ashdodite
+and
+Ashkelonite
+and
+Gathite
+and
+Ekronite
+and
+Avvite
+(relative)
+from
+the south
+and
+whole
+her
+earth, land
+(relative)
+Canaanite
+and
+cave, den
+(relative)
+Sidonian
+until, as far as, unto, so that
+to
+Aphek
+and
+until, as far as, unto, so that
+to
+limit, boundary, precept, regulation
+(relative)
+Amorite
+and
+earth, land
+(relative)
+Gebal
+and
+whole
+him
+Mount Lebanon
+from
+sunrise, east, Persian empire, Syria
+sun
+(relative)
+in
+Gilead
+(relative)
+under, beneath
+mountain
+(relative)
+Hermon
+until, as far as, unto, so that
+to
+entrance, ingress
+(relative)
+Hamath
+whole
+them
+inhabitant
+(relative)
+mountain
+and
+until, as far as, unto, so that
+to
+place, region
+(relative)
+water
+to be hot, to grow warm
+and
+to
+whole
+them
+Sidonian
+I
+THE LORD
+to perish, to come to naught. AF to destroy
+they, them
+from
+before
+son
+Israel
+in
+only, alone, sole
+then
+to
+earth, land
+(relative)
+Israel
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+you
+to divide, to have a portion, PA to divide into many parts
+her
+to
+earth, land
+this
+in
+inheritance, portion, lot
+to
+nine
+rod, stripe, tribe
+and
+to
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+with
+them
+because of
+(relative)
+Reuben
+and
+Gad
+and
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+PE to accuse, to impeach, PA to receive, to accept, AF to be opposite, to face
+inheritance, portion, lot
+them
+(relative)
+to give
+to
+them
+Moses
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+from
+sunrise, east, Persian empire, Syria
+as, almost, about
+this
+(relative)
+to give
+to
+them
+servant
+me
+Moses
+from
+Aroer
+(relative)
+upon, because
+lip, brim, edge
+(relative)
+torrent, wady, gorge, valley
+(relative)
+Arnon
+and
+town, village
+(relative)
+in
+the inside, inward parts
+him
+(relative)
+torrent, wady, gorge, valley
+and
+whole
+her
+plain, broad valley, level tract, expanse
+(relative)
+in
+setting of sun, west
+and
+until, as far as, unto, so that
+to
+Ribon
+whole
+them
+towns
+(relative)
+Sihon
+king
+(relative)
+Amorite
+(relative)
+to counsel, to promise, to reign
+in
+Hesbon
+until, as far as, unto, so that
+to
+limit, boundary, precept, regulation
+(relative)
+son
+Ammon
+and
+Gilead
+and
+limit, boundary, precept, regulation
+(relative)
+Endor
+and
+(relative)
+Koros
+and
+whole
+him
+mountain
+(relative)
+Hermon
+and
+whole
+her
+Matanin (Hebrew Bashan)
+until, as far as, unto, so that
+to
+Salecah
+whole
+her
+reign, kingdom, majesty
+him
+(relative)
+Og
+(relative)
+in
+Matanin (Hebrew Bashan)
+(relative)
+to counsel, to promise, to reign
+in
+Astoreth
+and
+in
+Edrei
+and
+he
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+from
+remnant, rest
+(relative)
+mighty, strong
+(relative)
+to kill, PA to kill many
+they, them
+Moses
+and
+to be heir, to inherit
+earth, land
+them
+and
+not
+to lay waste, to destroy
+son
+Israel
+to
+people
+(relative)
+Endor
+and
+(relative)
+Koros
+and
+to sit, AF, to make dwell, to set, place
+Eindorite
+and
+Korosite
+in
+the inside, inward parts
+son
+Israel
+until, as far as, unto, so that
+to
+today
+in
+only, alone, sole
+to
+rod, stripe, tribe
+(relative)
+Levi
+not
+to give
+portion, division, dissension, duplicity
+because of
+(relative)
+offering
+him
+(relative)
+THE LORD
+god
+(relative)
+Israel
+they
+they, them
+inheritance, portion, lot
+them
+as, almost, about
+this
+(relative)
+to say
+to
+them
+Moses
+and
+to give
+Moses
+to
+rod, stripe, tribe
+(relative)
+Reuben
+to
+generation, family, race, tribe
+them
+and
+to be
+limit, boundary, precept, regulation
+them
+from
+Aroer
+(relative)
+upon, because
+bank, shore
+lip, brim, edge
+(relative)
+torrent, wady, gorge, valley
+(relative)
+Arnon
+and
+town, village
+(relative)
+in
+the inside, inward parts
+torrent, wady, gorge, valley
+and
+whole
+her
+plain, broad valley, level tract, expanse
+until, as far as, unto, so that
+to
+Ribah
+and
+Hesbon
+and
+whole
+them
+towns
+(relative)
+there is
+in
+plain, broad valley, level tract, expanse
+and
+Ribon
+and
+Mathbaal
+and
+middle
+son
+Ammon
+and
+Jahaz
+and
+Kedemoth
+and
+Anath
+and
+Kiriathaim
+and
+Shammah
+and
+Jazreth
+and
+Seir
+(relative)
+in
+mountain
+(relative)
+in
+the deep, depth, low-lying country
+and
+house
+Peor
+and
+Astoreth
+and
+Pisgah
+and
+house
+Ahshimoth
+and
+whole
+them
+towns
+(relative)
+in
+noise, crash, thunderbolt, rift, fissure, seaweed
+and
+whole
+her
+reign, kingdom, majesty
+him
+(relative)
+Sihon
+king
+(relative)
+Amorite
+(relative)
+to counsel, to promise, to reign
+in
+Hesbon
+(relative)
+to kill, PA to kill many
+him
+Moses
+and
+son
+Israel
+in
+Midian
+to
+him
+and
+to
+chief
+him
+to
+Evi
+and
+to
+Rekem
+and
+to
+Tyre
+and
+to
+Hur
+and
+to
+Rebah
+five
+these
+ruling
+him
+(relative)
+Sihon
+(relative)
+to dwell, to stay, to inhabit
+in
+earth, land
+and
+to
+Balaam
+male offspring
+Beor
+soothsayer
+to kill, PA to kill many
+him
+son
+Israel
+in
+sword, blade, dagger
+with
+to kill, PA to kill many
+them
+and
+to be
+limit, boundary, precept, regulation
+(relative)
+son
+Reuben
+Jordan
+this
+she
+inheritance, portion, lot
+(relative)
+son
+Reuben
+to
+generation, family, race, tribe
+them
+towns
+and
+field
+them
+and
+to give
+Moses
+to
+rod, stripe, tribe
+(relative)
+Gad
+to
+son
+him
+(relative)
+Gad
+to
+generation, family, race, tribe
+them
+and
+to be
+limit, boundary, precept, regulation
+them
+Jazer
+and
+whole
+them
+towns
+(relative)
+Gilead
+half, part
+her
+(relative)
+earth, land
+(relative)
+son
+Ammon
+until, as far as, unto, so that
+to
+Aroer
+(relative)
+there is
+before
+Rabbah
+and
+from
+Hesbon
+and
+until, as far as, unto, so that
+to
+Ramat
+Mizpah
+and
+Batnin
+and
+from
+Menahem
+and
+until, as far as, unto, so that
+to
+limit, boundary, precept, regulation
+(relative)
+Debir
+and
+in
+the deep, depth, low-lying country
+and
+house
+Atim
+and
+house
+Nimrah
+and
+Succoth
+and
+the north wind, the north
+and
+remnant, rest
+(relative)
+reign, kingdom, majesty
+him
+(relative)
+Sihon
+king
+(relative)
+Hesbon
+and
+limit, boundary, precept, regulation
+them
+until, as far as, unto, so that
+to
+Jordan
+and
+until, as far as, unto, so that
+to
+the uttermost part, end, edge, border
+(relative)
+sea, lake
+(relative)
+Kinnereth
+and
+until, as far as, unto, so that
+to
+passing over, ford, strait, further shore
+(relative)
+Jordan
+(relative)
+in
+sunrise, east, Persian empire, Syria
+this
+she
+inheritance, portion, lot
+(relative)
+son
+Gad
+to
+generation, family, race, tribe
+them
+towns
+and
+field
+them
+and
+to give
+Moses
+to
+half, part, section
+rod, stripe, tribe
+(relative)
+Manasseh
+and
+to be
+portion, division, dissension, duplicity
+them
+(relative)
+son
+Manasseh
+to
+generation, family, race, tribe
+them
+and
+to be
+limit, boundary, precept, regulation
+them
+from
+Menahem
+and
+whole
+her
+Matanin (Hebrew Bashan)
+and
+whole
+her
+reign, kingdom, majesty
+him
+(relative)
+Og
+king
+(relative)
+Matanin (Hebrew Bashan)
+and
+whole
+them
+little village, hamlet
+(relative)
+Jair
+(relative)
+in
+Matanin (Hebrew Bashan)
+six
+towns
+and
+half, part
+her
+(relative)
+Gilead
+and
+(relative)
+Astoreth
+and
+(relative)
+Edrei
+towns
+(relative)
+reign, kingdom, majesty
+him
+(relative)
+Og
+(relative)
+in
+Matanin (Hebrew Bashan)
+these
+towns
+and
+little village, hamlet
+them
+to give
+Moses
+to
+son
+him
+(relative)
+Machir
+male offspring
+Manasseh
+to
+half, part
+(relative)
+son
+Machir
+to
+generation, family, race, tribe
+them
+to
+these
+two
+rod, stripe, tribe
+and
+to
+half, part, section
+rod, stripe, tribe
+to be heir, to inherit
+Moses
+in
+plain, broad valley, level tract, expanse
+(relative)
+Moab
+from
+passing over, ford, strait, further shore
+(relative)
+Jordan
+from
+sunrise, east, Persian empire, Syria
+and
+to
+rod, stripe, tribe
+(relative)
+Levi
+not
+to give
+Moses
+inheritance, portion, lot
+because of
+(relative)
+THE LORD
+he
+god
+(relative)
+Israel
+inheritance, portion, lot
+them
+as, almost, about
+(relative)
+to say
+to
+them
+and
+these
+(relative)
+to be heir, to inherit
+son
+Israel
+in
+earth, land
+(relative)
+Canaan
+(relative)
+to be heir, to inherit
+they, them
+Eliazar
+priest
+and
+Jesus, Joshua
+male offspring
+Nun
+and
+head, top, summit
+(relative)
+father
+(relative)
+rod, stripe, tribe
+(relative)
+Israel
+in
+part, portion
+(relative)
+inheritance, portion, lot
+them
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+THE LORD
+in
+hand, side
+(relative)
+Moses
+to
+only ipf to give, to make to be, to put
+to
+nine
+rod, stripe, tribe
+and
+to
+half, part, section
+rod, stripe, tribe
+because of
+(relative)
+to give
+Moses
+inheritance, portion, lot
+to
+two
+rod, stripe, tribe
+and
+to
+half, part, section
+rod, stripe, tribe
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+and
+to
+Levite
+not
+to give
+inheritance, portion, lot
+middle
+them
+because of
+(relative)
+to be
+son
+Joseph
+two
+rod, stripe, tribe
+Manasseh
+and
+Ephraim
+and
+not
+to give
+half, part, section
+to
+Levite
+in
+earth, land
+if, O!
+not
+if, O!
+towns
+to
+to dwell, to stay, to inhabit
+in
+them
+and
+field
+to
+sheep, cattle, beasts
+them
+and
+to
+possessions, landed property
+them
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+THE LORD
+to
+Moses
+thus, so, such
+to do, to make, to work
+son
+Israel
+and
+to divide, to have a portion, PA to divide into many parts
+her
+to
+earth, land
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+son
+Judah
+at, with, towards, for
+Jesus, Joshua
+in
+Gilgal
+and
+to say
+Caleb
+male offspring
+Jephunneh
+Kenizzite
+to
+Jesus, Joshua
+you
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+you
+word, saying, matter, thing
+(relative)
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+THE LORD
+with
+Moses
+servant
+him
+upon, because
+matter, possession
+me
+and
+upon, because
+matter, possession
+you
+in
+Rekem
+(relative)
+valley
+when, although, because, while
+male offspring
+four
+to be
+year
+then
+when, although, because, while
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+me
+Moses
+servant
+him
+(relative)
+god
+from
+Rekem
+(relative)
+valley
+to
+touch
+her
+to
+earth, land
+and
+to return, to flow back, to repent
+him
+word, saying, matter, thing
+as, almost, about
+(relative)
+there is
+to be
+in
+heart
+me
+and
+brother
+who, which, what
+(relative)
+to go up,to ascend
+to be
+with
+us
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+him
+heart
+him
+(relative)
+people
+and
+I
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+after, following
+THE LORD
+god
+me
+and
+to swear
+Moses
+in
+him
+in
+time, age, era
+that
+and
+to say
+(relative)
+earth, land
+(relative)
+to tread, AF to come up, to follow closely, to overtake
+in
+her
+foot, hoof
+you
+to
+you
+to be
+inheritance, portion, lot
+and
+to
+son
+you
+to
+age, era, eternity
+because of
+(relative)
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+after, following
+THE LORD
+god
+and
+this hour
+behold
+to rest, to stay quiet
+to
+us
+THE LORD
+as, almost, about
+this
+(relative)
+to say
+behold
+four
+and
+five
+year
+behold
+from
+(relative)
+to say
+THE LORD
+word, saying, thing, affair
+this
+to
+Moses
+(relative)
+PA to go, to walk
+to
+Israel
+in
+desert, wilderness
+and
+this hour
+I
+today
+male offspring
+eight
+I
+and
+five
+year
+and
+until, as far as, unto, so that
+to
+this hour
+might, strength, force
+there is
+in
+me
+as, almost, about
+(relative)
+in
+day
+that
+(relative)
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+me
+Moses
+might, strength, force
+me
+(relative)
+then
+and
+(relative)
+this hour
+to be even, equal, sufficient, to be worth, ETHPE to be equal, PA to lay even, to wipe, to treat as equal, to agree, ETHPA to be laid low, to agree, APH to level, make even
+he
+to
+nearness, war
+and
+to
+to go out, to issue, to proceed forth
+and
+to
+to enter, AF to bring in, to carry in
+this hour
+to give
+to
+me
+mountain
+this
+(relative)
+to say
+THE LORD
+in
+him
+in
+day
+that
+and
+you
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+in
+him
+in
+day
+that
+(relative)
+mighty, strong
+there is
+there, yonder
+and
+city, town, province
+great, grown up, nobles, chiefs
+they, them
+and
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+perhaps
+to be
+THE LORD
+with
+me
+and
+to lay waste, to destroy
+they, them
+as, almost, about
+(relative)
+to say
+THE LORD
+and
+to kneel, to bow down, PA to bless
+him
+Jesus, Joshua
+to
+Caleb
+male offspring
+Jephunneh
+and
+to give
+to
+him
+to
+Hebron
+walled city, fortified place
+inheritance, portion, lot
+because of
+this
+to be
+Hebron
+walled city, fortified place
+inheritance, portion, lot
+to
+Caleb
+male offspring
+Jephunneh
+Kenizzite
+until, as far as, unto, so that
+to
+today
+because of
+(relative)
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+after, following
+THE LORD
+god
+(relative)
+Israel
+and
+name, appellation, title
+her
+(relative)
+Hebron
+walled city, fortified place
+from
+first, former
+Kiriath
+four
+(relative)
+man, human, mortal
+mighty, strong
+and
+earth, land
+to rest, to stay quiet
+from
+nearness, war
+and
+to be
+part, portion
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Judah
+to
+generation, family, race, tribe
+them
+upon, because
+limit, boundary, precept, regulation
+(relative)
+Edom
+and
+until, as far as, unto, so that
+to
+desert, wilderness
+(relative)
+Zin
+and
+until, as far as, unto, so that
+to
+latter end, extremity
+her
+(relative)
+the south
+and
+to be
+limit, boundary, precept, regulation
+them
+from
+the south
+(relative)
+the uttermost part, end, edge, border
+(relative)
+sea, lake
+(relative)
+salt
+and
+to go up,to ascend
+from
+there, yonder
+to
+tongue, speech, language
+(relative)
+to turn, to return, to repent, ETHPE to betake oneself, to turn towards, PA to restore, AF to cause to turn
+to
+the south
+and
+to go out, to issue, to proceed forth
+from
+the south
+to
+ascent, eminence, stairs
+(relative)
+Akarkam
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+to
+Zin
+and
+to go up,to ascend
+from
+the south
+to
+Rekem
+(relative)
+valley
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+to
+Hazeroth
+and
+to go up,to ascend
+to
+threshing floor
+and
+to go round, to encompass, AF to enclose, to make go round
+to
+Karka
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+to
+Azmon
+and
+to go out, to issue, to proceed forth
+to
+torrent, wady, gorge, valley
+(relative)
+Egypt
+and
+to be
+going forth, departure
+him
+(relative)
+limit, boundary, precept, regulation
+to
+setting of sun, west
+this
+to be
+to
+you
+limit, boundary, precept, regulation
+(relative)
+the south
+and
+limit, boundary, precept, regulation
+(relative)
+sunrise, east, Persian empire, Syria
+the uttermost part, end, edge, border
+(relative)
+sea, lake
+(relative)
+salt
+until, as far as, unto, so that
+to
+the uttermost part, end, edge, border
+(relative)
+Jordan
+and
+limit, boundary, precept, regulation
+to
+side
+(relative)
+the north wind, the north
+from
+tongue, speech, language
+(relative)
+sea, lake
+from
+the uttermost part, end, edge, border
+(relative)
+Jordan
+and
+to go up,to ascend
+limit, boundary, precept, regulation
+to
+Leban
+(relative)
+son
+Reuben
+and
+to go up,to ascend
+limit, boundary, precept, regulation
+to
+Debir
+from
+the deep, depth, low-lying country
+(relative)
+Achar
+and
+to
+the north wind, the north
+and
+to turn, to return, to repent, ETHPE to betake oneself, to turn towards, PA to restore, AF to cause to turn
+upon, because
+Galilee
+(relative)
+opposite, against, before, towards
+ascent, eminence, stairs
+(relative)
+Ramin
+from
+the south
+to
+torrent, wady, gorge, valley
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+limit, boundary, precept, regulation
+upon, because
+spring, source
+(relative)
+sun
+and
+to be
+going forth, departure
+him
+upon, because
+eye
+(relative)
+Dugel
+and
+to go up,to ascend
+limit, boundary, precept, regulation
+to
+torrent, wady, gorge, valley
+(relative)
+Barhinom
+to
+side
+(relative)
+Jebusite
+(relative)
+from
+the south
+(relative)
+she
+she
+Jerusalem
+and
+to go up,to ascend
+limit, boundary, precept, regulation
+upon, because
+head, top, summit
+(relative)
+mountain
+(relative)
+before
+torrent, wady, gorge, valley
+(relative)
+Barhinom
+from
+setting of sun, west
+(relative)
+the uttermost part, end, edge, border
+the deep, depth, low-lying country
+(relative)
+mighty, strong
+and
+to look, to gaze, to behold
+limit, boundary, precept, regulation
+from
+head, top, summit
+him
+(relative)
+mountain
+to
+spring, source
+(relative)
+water
+(relative)
+Nephtoah
+and
+to go out, to issue, to proceed forth
+upon, because
+horn
+(relative)
+mountain
+(relative)
+Ebron
+and
+to look, to gaze, to behold
+limit, boundary, precept, regulation
+to
+Bela
+(relative)
+she
+she
+Kiriath
+(Kiriath) Naarin
+and
+to look, to gaze, to behold
+limit, boundary, precept, regulation
+from
+Bela
+to
+setting of sun, west
+upon, because
+mountain
+(relative)
+Seir
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+upon, because
+side
+(relative)
+mountain
+(relative)
+Narim
+from
+the north wind, the north
+she
+she
+Chislon
+and
+to descend, PA to bring down, AF to cause to come down
+to
+house
+Shamosh (name of sun god)
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+to
+the south
+and
+to go out, to issue, to proceed forth
+limit, boundary, precept, regulation
+to
+side
+(relative)
+Ekron
+from
+the north wind, the north
+and
+to look, to gaze, to behold
+limit, boundary, precept, regulation
+to
+Shikkeron
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+upon, because
+mountain
+(relative)
+Bela
+and
+to go out, to issue, to proceed forth
+to
+Jahbael
+and
+to be
+going forth, departure
+him
+(relative)
+limit, boundary, precept, regulation
+to
+setting of sun, west
+and
+limit, boundary, precept, regulation
+him
+from
+setting of sun, west
+to
+Meribah
+in
+limit, boundary, precept, regulation
+her
+this
+he
+limit, boundary, precept, regulation
+(relative)
+son
+Judah
+to
+generation, family, race, tribe
+them
+when, although, because, while
+to go round, to encompass, AF to enclose, to make go round
+and
+to
+Caleb
+male offspring
+Jephunneh
+to give
+Jesus, Joshua
+portion, division, dissension, duplicity
+middle
+son
+Judah
+as, almost, about
+word, saying, thing, affair
+mouth
+him
+(relative)
+THE LORD
+and
+to say
+Caleb
+to
+Jesus, Joshua
+to give
+to
+me
+this
+Kiriath
+four
+(relative)
+father
+them
+(relative)
+mighty, strong
+and
+to give
+Jesus, Joshua
+to
+Caleb
+Kiriath
+four
+(relative)
+father
+them
+(relative)
+mighty, strong
+(relative)
+she
+she
+Hebron
+and
+to lay waste, to destroy
+from
+there, yonder
+Caleb
+three
+son
+mighty, strong
+to
+Sheshai
+and
+to
+Ahiman
+and
+to
+Talmai
+son
+mighty, strong
+and
+to go up,to ascend
+from
+there, yonder
+upon, because
+inhabitant
+(relative)
+Debir
+and
+name, appellation, title
+her
+(relative)
+Debir
+from
+first, former
+Kiriath
+(Kiriath) Sepher
+and
+to say
+Caleb
+whole
+who, which, what
+(relative)
+to break up, to subjugate, to subdue
+her
+to
+Kiriath
+(Kiriath) Sepher
+and
+to lay waste, to destroy
+her
+only ipf to give, to make to be, to put
+to
+him
+to
+Achsah
+daughter
+me
+woman, wife
+and
+to break up, to subjugate, to subdue
+her
+Othniel
+male offspring
+Kenaz
+brother
+him
+(relative)
+Caleb
+and
+to give
+to
+him
+to
+Achsah
+daughter
+him
+woman, wife
+and
+when, although, because, while
+to be
+to
+him
+attract
+(relative)
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+from
+father
+her
+inheritance, portion, lot
+(relative)
+field, open country
+and
+to turn, decline, ETHPE to incline oneself, bend, be bent, dismount, descend, APH to lower, let down, to incline
+from
+ass
+to say
+to
+her
+Caleb
+what
+to
+you
+daughter
+me
+to say
+to
+him
+to give
+to
+me
+blessing, gift, present
+because of
+(relative)
+in
+earth, land
+(relative)
+the south
+to give
+me
+to give
+to
+me
+ditch, pit, trench
+this
+(relative)
+water
+and
+to give
+to
+her
+Caleb
+ditch, pit, trench
+exalted, supreme, superior
+and
+ditch, pit, trench
+lower, inferior, lowest, earthly
+this
+she
+inheritance, portion, lot
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Judah
+to
+generation, family, race, tribe
+them
+and
+to be
+towns
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Judah
+upon, because
+limit, boundary, precept, regulation
+(relative)
+Edom
+from
+the south
+and
+these
+they, them
+name, appellation, title
+(relative)
+towns
+(relative)
+son
+Judah
+Kabzeel
+and
+Adar
+and
+Jagur
+and
+Kinah
+and
+Jarmonah
+and
+Gadgadah
+and
+Kedesh
+and
+Hazor
+and
+Natnin
+and
+Zeeb
+and
+Atlam
+and
+Baloth
+and
+Hazor
+and
+Hadattah
+and
+towns
+Hezron
+and
+Amam
+and
+Ashma
+and
+Moladah
+and
+Hazor
+Ada
+and
+Heshmon
+and
+house
+Pelet
+and
+enclosure, court, chamber
+fox
+and
+Beersheba
+and
+Beerjothana
+and
+lord, owner, head
+and
+Elian
+and
+Azem
+and
+Altalam
+and
+Achsin
+and
+Hormah
+and
+Ziklag
+and
+Marmanah
+and
+Samsalah
+and
+Lebaoth
+and
+Shaloh
+and
+Airmon
+whole
+them
+towns
+three
+and
+six
+and
+field
+them
+in
+plain, broad valley, level tract, expanse
+and
+Eshtaol
+and
+Zeda
+and
+Eshtnah
+and
+Hoh
+and
+eye
+Gahom
+and
+Patoh
+and
+Elam
+and
+Jarmuth
+and
+Arlam
+and
+bough, branch, twig
+and
+difficult
+and
+Shathin
+and
+Azithim
+and
+Geter
+and
+Gethronin
+towns
+five
+ten
+and
+field
+them
+and
+Zalan
+and
+Harshah
+and
+Magdal-Gad
+and
+Delban
+and
+Kazpah
+and
+Joktheel
+and
+Lachish
+and
+Azkath
+and
+Eglon
+and
+Cabshon
+and
+Lahmas
+and
+Cathlish
+and
+Gederoth
+and
+house
+(relative)
+colour, appearance
+and
+Naamah
+and
+Nakdah
+towns
+six
+ten
+and
+field
+them
+and
+Labban
+and
+Ether
+and
+Nephtah
+and
+Ashan
+and
+Ashiah
+and
+Ziklag
+and
+Keilah
+and
+Achzib
+and
+Mareshah
+towns
+nine
+and
+field
+them
+and
+Ekron
+and
+little village, hamlet
+her
+and
+field
+her
+from
+setting of sun, west
+and
+whole
+him
+place, region
+(relative)
+Ashdod
+and
+field
+them
+and
+Ashdod
+and
+little village, hamlet
+her
+and
+field
+her
+and
+Gaza
+and
+little village, hamlet
+her
+and
+field
+her
+until, as far as, unto, so that
+to
+torrent, wady, gorge, valley
+(relative)
+Egypt
+and
+sea, lake
+great
+limit, boundary, precept, regulation
+and
+these
+in
+mountain
+Shamir
+and
+Jattir
+and
+Socah
+and
+Rannah
+and
+Kiriath
+(Kiriath) Sepher
+(relative)
+she
+she
+Debir
+and
+Ganab
+and
+Eshtemoh
+and
+Elian
+and
+Eshian
+and
+Holon
+and
+Giloh
+towns
+one
+ten
+and
+field
+them
+and
+Rib
+and
+height, breadth, size
+and
+Ashan
+and
+Jalum
+and
+house
+Patoh
+and
+Aphek
+and
+Humtah
+and
+Kiriath
+four
+(relative)
+she
+she
+Hebron
+and
+Zibeon
+towns
+nine
+and
+field
+them
+and
+Maon
+and
+Carmel
+and
+Zeeb
+and
+Atnah
+and
+Jezreel
+and
+Yokneam
+and
+Zaluh
+and
+Cain, the Kenites
+and
+Gibea
+and
+Taknah
+towns
+ten
+and
+field
+them
+and
+banquet, esp. marriage feast
+and
+house
+Zado
+and
+Gathar
+and
+Maarath
+and
+house
+Anath
+and
+Lathkan
+towns
+six
+and
+field
+them
+and
+Rabbah
+and
+Kiriath
+lord, owner, head
+(relative)
+she
+she
+Kiriath
+(Kiriath) Naarin
+towns
+two
+and
+field
+them
+in
+desert, wilderness
+and
+house
+Arabah
+and
+Midian
+and
+Sachsah
+and
+Jashan
+and
+Er
+Mehel
+and
+eye
+Gad
+towns
+six
+and
+field
+them
+and
+to
+Jebusite
+(relative)
+to sit, AF, to make dwell, to set, place
+in
+Jerusalem
+not
+to lay waste, to destroy
+son
+Judah
+and
+to sit, AF, to make dwell, to set, place
+Jebusite
+with
+son
+Judah
+in
+Jerusalem
+until, as far as, unto, so that
+to
+today
+and
+to go out, to issue, to proceed forth
+part, portion
+(relative)
+son
+Joseph
+from
+Jordan
+(relative)
+Jericho
+to
+water
+(relative)
+Jericho
+from
+sunrise, east, Persian empire, Syria
+desert, wilderness
+(relative)
+to go up,to ascend
+from
+Jericho
+and
+until, as far as, unto, so that
+to
+mountain
+(relative)
+house
+El (divine name)
+and
+to go out, to issue, to proceed forth
+from
+house
+El (divine name)
+to
+Luz
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+to
+limit, boundary, precept, regulation
+(relative)
+passing over, ford, strait, further shore
+and
+(relative)
+Ataroth
+and
+to descend, PA to bring down, AF to cause to come down
+to
+setting of sun, west
+to
+limit, boundary, precept, regulation
+(relative)
+Paltah
+until, as far as, unto, so that
+to
+limit, boundary, precept, regulation
+(relative)
+house
+(Beyt-) Horon
+lower, inferior, lowest, earthly
+and
+until, as far as, unto, so that
+to
+Geder
+and
+to be
+going forth, departure
+him
+to
+setting of sun, west
+and
+to be heir, to inherit
+son
+Joseph
+Manasseh
+and
+Ephraim
+and
+to be
+limit, boundary, precept, regulation
+(relative)
+son
+Ephraim
+to
+generation, family, race, tribe
+them
+limit, boundary, precept, regulation
+(relative)
+inheritance, portion, lot
+them
+Ataroth
+threshing floor
+until, as far as, unto, so that
+to
+house
+(Beyt-) Horon
+exalted, supreme, superior
+and
+to go out, to issue, to proceed forth
+limit, boundary, precept, regulation
+to
+setting of sun, west
+(relative)
+part, portion
+(relative)
+the north wind, the north
+and
+to go round, to encompass, AF to enclose, to make go round
+limit, boundary, precept, regulation
+from
+sunrise, east, Persian empire, Syria
+(relative)
+under, beneath
+Shiloh
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+from
+sunrise, east, Persian empire, Syria
+(relative)
+Jaloah
+and
+to descend, PA to bring down, AF to cause to come down
+from
+Jaloah
+to
+Ataroth
+and
+to
+Jagrath
+and
+to
+Pagar
+and
+to
+Jericho
+and
+to go out, to issue, to proceed forth
+from
+Tappuah
+to
+Jordan
+and
+to go, to walk
+to
+limit, boundary, precept, regulation
+western
+(relative)
+torrent, wady, gorge, valley
+(relative)
+Kabah
+and
+to be
+going forth, departure
+him
+to
+setting of sun, west
+this
+she
+inheritance, portion, lot
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Ephraim
+to
+generation, family, race, tribe
+them
+towns
+(relative)
+to separate, to sever, to divide
+to be
+to
+son
+Ephraim
+in
+the inside, inward parts
+inheritance, portion, lot
+(relative)
+son
+Manasseh
+whole
+them
+towns
+and
+field
+them
+and
+not
+to lay waste, to destroy
+to
+Canaanite
+(relative)
+to sit, AF, to make dwell, to set, place
+in
+Geder
+and
+to sit, AF, to make dwell, to set, place
+Canaanite
+in
+the inside, inward parts
+Ephraim
+until, as far as, unto, so that
+to
+today
+and
+to break up, to subjugate, to subdue
+in
+tribute, fine, penalty
+and
+to be
+Gilead
+part, portion
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+because of
+(relative)
+he
+he
+to be
+firstborn
+him
+(relative)
+Joseph
+and
+to
+Machir
+firstborn
+him
+(relative)
+Manasseh
+father
+him
+(relative)
+Gilead
+because of
+(relative)
+he
+to be
+firstborn
+man
+warlike, brave, pugnacious, contentious, a man of war, warrior
+and
+to be
+[possessive]
+him
+Gilead
+and
+Matanin (Hebrew Bashan)
+and
+to be
+(relative)
+son
+Manasseh
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+to
+generation, family, race, tribe
+them
+and
+to
+son
+Abiezer
+and
+to
+son
+Helek
+and
+to
+son
+Neshrael
+and
+to
+son
+Shopham
+and
+to
+son
+Hepher
+and
+to
+son
+Shemida
+these
+son
+him
+(relative)
+Manasseh
+male offspring
+Joseph
+male, masculine, a ram, chem. arsenic
+to
+generation, family, race, tribe
+them
+and
+to
+Zelophehad
+male offspring
+Hepher
+male offspring
+Gilead
+male offspring
+Machir
+male offspring
+Manasseh
+not
+to be
+to
+him
+son
+if, O!
+not
+daughter
+and
+these
+name, appellation, title
+(relative)
+daughter
+him
+Mahlah
+and
+Jaah
+and
+Hoglah
+and
+Milkah
+and
+Tirzah
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+before
+Eliazar
+priest
+and
+before
+Jesus, Joshua
+male offspring
+Nun
+and
+before
+chief
+(relative)
+Israel
+and
+to say
+THE LORD
+to visit, to command, to entreat, PA to give commission
+to
+Moses
+(relative)
+only ipf to give, to make to be, to put
+to
+us
+inheritance, portion, lot
+middle
+brother
+and
+to give
+to
+us
+upon, because
+word, saying, thing, affair
+mouth
+him
+(relative)
+THE LORD
+middle
+brother
+(relative)
+father
+us
+and
+this hour
+to give
+to
+us
+inheritance, portion, lot
+middle
+brother
+(relative)
+father
+us
+and
+to give
+to
+them
+Jesus, Joshua
+inheritance, portion, lot
+and
+portion, division, dissension, duplicity
+middle
+brother
+(relative)
+father
+them
+and
+fall
+cord, line, portion, allotment
+him
+(relative)
+Manasseh
+ten
+to
+outside area
+from
+earth, land
+(relative)
+Gilead
+and
+(relative)
+Matanin (Hebrew Bashan)
+(relative)
+there is
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+because of
+(relative)
+daughter
+him
+(relative)
+Manasseh
+to be heir, to inherit
+inheritance, portion, lot
+with
+brother
+them
+and
+earth, land
+(relative)
+Gilead
+to be
+to
+son
+him
+(relative)
+Manasseh
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+and
+to be
+limit, boundary, precept, regulation
+(relative)
+son
+Manasseh
+from
+limit, boundary, precept, regulation
+(relative)
+Maacath (person)
+(relative)
+there is
+upon, because
+right-hand side
+(relative)
+inhabited place, site
+eye
+Tappuah
+and
+to be
+earth, land
+them
+in
+Tappuah
+and
+to open, to unlock, to admit
+and
+to be
+limit, boundary, precept, regulation
+to
+son
+Manasseh
+male offspring
+Joseph
+and
+to
+house
+son
+Ephraim
+and
+to descend, PA to bring down, AF to cause to come down
+limit, boundary, precept, regulation
+them
+to
+torrent, wady, gorge, valley
+(relative)
+sea, lake
+from
+the south
+(relative)
+torrent, wady, gorge, valley
+(relative)
+towns
+these
+(relative)
+Ephraim
+to
+middle
+towns
+(relative)
+Manasseh
+and
+limit, boundary, precept, regulation
+(relative)
+Manasseh
+from
+the north wind, the north
+(relative)
+torrent, wady, gorge, valley
+and
+to be
+going forth, departure
+him
+to
+setting of sun, west
+and
+the south
+to
+Ephraim
+and
+the north wind, the north
+to
+Manasseh
+and
+sea, lake
+limit, boundary, precept, regulation
+them
+and
+in
+Asher
+to meet, to arrive, to happen upon
+from
+the north wind, the north
+and
+in
+Issachar
+from
+sunrise, east, Persian empire, Syria
+and
+to be
+(relative)
+Manasseh
+opposite, against, before, towards
+him
+(relative)
+Issachar
+house
+(Beyt-)Shean
+and
+little village, hamlet
+her
+and
+Ibleam
+and
+little village, hamlet
+her
+and
+Ain
+Dor
+and
+little village, hamlet
+her
+and
+Taanach
+and
+little village, hamlet
+her
+and
+Megiddo
+and
+little village, hamlet
+her
+three
+corner, angle
+and
+not
+to lay waste, to destroy
+son
+Israel
+to
+towns
+these
+because of
+(relative)
+APH to persuade
+Canaanite
+to
+to sit, AF, to make dwell, to set, place
+in
+towns
+these
+and
+when, although, because, while
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+son
+Israel
+to break up, to subjugate, to subdue
+they, them
+to
+Canaanite
+in
+tribute, fine, penalty
+and
+to lay waste, to destroy
+not
+to lay waste, to destroy
+they, them
+and
+to say
+son
+Joseph
+to
+Jesus, Joshua
+to
+what, why, wherefore
+to give
+to
+us
+inheritance, portion, lot
+part, portion
+one
+and
+cord, line, portion, allotment
+one
+and
+we
+people
+we
+much, many, great
+until, as far as, unto, so that
+he
+to
+here, hitherto, henceforward
+to kneel, to bow down, PA to bless
+us
+THE LORD
+to say
+to
+them
+Jesus, Joshua
+if, O!
+people
+you
+much, many, great
+to go up,to ascend
+to
+you
+to
+side, see GNB
+(relative)
+mountain
+and
+to choose
+to
+you
+there, yonder
+in
+earth, land
+(relative)
+Perizzite
+and
+(relative)
+mighty, strong
+because of
+(relative)
+to be pressing, to straiten, to hem in ETPHE be straight, narrow, tormented (with illness, hunger, thirst)
+he
+to
+you
+mountain
+(relative)
+Ephraim
+and
+to say
+son
+Joseph
+not
+to suffice, to be enough (pass. ptc. empty, vacant)
+to
+us
+mountain
+and
+city, town, province
+(relative)
+Perizzite
+because of
+(relative)
+Canaanite
+to sit, AF, to make dwell, to set, place
+in
+earth, land
+(relative)
+the deep, depth, low-lying country
+and
+in
+house
+(Beyt-)Shean
+and
+in
+little village, hamlet
+her
+and
+in
+the deep, depth, low-lying country
+(relative)
+Jezreel
+and
+to say
+Jesus, Joshua
+to
+(relative)
+house
+Joseph
+to
+son
+Ephraim
+and
+Manasseh
+people
+much, many, great
+you
+and
+might, strength, force
+great
+there is
+to
+you
+if, O!
+not
+to suffice, to be enough (pass. ptc. empty, vacant)
+to
+you
+part, portion
+one
+to choose
+to
+you
+mountain
+and
+to suffice, to be enough (pass. ptc. empty, vacant)
+to
+you
+and
+side, see GNB
+him
+(relative)
+mountain
+to be
+to
+you
+going forth, departure
+him
+and
+to lay waste, to destroy
+to
+Canaanite
+and
+to
+Perizzite
+because of
+(relative)
+chariot, vehicle
+great, grown up, nobles, chiefs
+(relative)
+strong
+(relative)
+iron
+there is
+to
+them
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+they, them
+and
+to gather together, to collect, PA to assemble, to call together
+whole
+her
+congregation, synagogue
+(relative)
+son
+Israel
+to
+Shiloh
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+there, yonder
+tent, tabernacle, habitation
+time, age, era
+and
+earth, land
+to break up, to subjugate, to subdue
+before
+them
+and
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+from
+son
+Israel
+(relative)
+not
+to divide, to have a portion, PA to divide into many parts
+inheritance, portion, lot
+them
+rod, stripe, tribe
+seven
+and
+to say
+Jesus, Joshua
+to
+son
+Israel
+until, as far as, unto, so that
+to
+when, at that time
+PE ptc.pss.loose, porous, soft, PA to loosen, to enfeeble, to desert, AF to leave, to let alone
+you
+to
+to enter, AF to bring in, to carry in
+to
+to be heir, to inherit
+earth, land
+(relative)
+to give
+to
+you
+THE LORD
+god
+(relative)
+father
+you
+to choose
+to
+you
+three
+three
+man
+from
+rod, stripe, tribe
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+they, them
+and
+to arise APH raise up, place
+and
+PA to go, to walk
+in
+earth, land
+and
+to write, ETHPE to be written, APH to write
+her
+according to
+inheritance, portion, lot
+them
+and
+to come
+at, with, towards, for
+me
+and
+to divide, to have a portion, PA to divide into many parts
+her
+to
+earth, land
+to
+seven
+portion, division, dissension, duplicity
+and
+Judah
+to arise APH raise up, place
+upon, because
+limit, boundary, precept, regulation
+him
+from
+the south
+and
+(relative)
+house
+Joseph
+to arise APH raise up, place
+upon, because
+limit, boundary, precept, regulation
+them
+from
+the north wind, the north
+and
+you
+to write, ETHPE to be written, APH to write
+her
+to
+earth, land
+to
+seven
+portion, division, dissension, duplicity
+and
+to come
+her
+at, with, towards, for
+me
+to
+here, hitherto, henceforward
+and
+PA to show
+you
+part, portion
+(relative)
+to choose
+before
+THE LORD
+god
+us
+because of
+(relative)
+not
+there is
+portion, division, dissension, duplicity
+to
+Levite
+middle
+you
+because of
+(relative)
+priesthood, office of priest
+him
+he
+(relative)
+THE LORD
+inheritance, portion, lot
+them
+and
+Gad
+and
+Reuben
+and
+half, part, section
+rod, stripe, tribe
+(relative)
+Manasseh
+PE to accuse, to impeach, PA to receive, to accept, AF to be opposite, to face
+inheritance, portion, lot
+them
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+from
+sunrise, east, Persian empire, Syria
+(relative)
+to give
+to
+them
+Moses
+servant
+him
+(relative)
+THE LORD
+and
+to arise APH raise up, place
+man
+and
+to go, to walk
+and
+to visit, to command, to entreat, PA to give commission
+Jesus, Joshua
+to
+those
+(relative)
+to go, to walk
+to
+to write, ETHPE to be written, APH to write
+her
+to
+earth, land
+and
+to say
+to
+them
+to go, to walk
+PA to go, to walk
+in
+earth, land
+and
+to write, ETHPE to be written, APH to write
+her
+and
+to come
+at, with, towards, for
+me
+to
+here, hitherto, henceforward
+and
+throw down
+to
+you
+part, portion
+before
+THE LORD
+in
+Shiloh
+and
+to go, to walk
+man
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+in
+earth, land
+and
+to write, ETHPE to be written, APH to write
+they, them
+to
+towns
+seven
+portion, division, dissension, duplicity
+upon, because
+sickle
+and
+to come
+at, with, towards, for
+Jesus, Joshua
+to
+Shiloh
+city, town, province
+and
+throw down
+to
+them
+piece, part, lot, share
+in
+Shiloh
+before
+THE LORD
+and
+to divide, to have a portion, PA to divide into many parts
+her
+there, yonder
+Jesus, Joshua
+to
+earth, land
+to
+son
+Israel
+in
+portion, division, dissension, duplicity
+and
+to go up,to ascend
+piece, part, lot, share
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Benjamin
+to
+generation, family, race, tribe
+them
+and
+to go out, to issue, to proceed forth
+limit, boundary, precept, regulation
+(relative)
+inheritance, portion, lot
+them
+to
+house
+son
+Judah
+and
+to
+house
+son
+Joseph
+and
+to be
+limit, boundary, precept, regulation
+them
+to
+side
+(relative)
+the north wind, the north
+from
+Jordan
+and
+to go up,to ascend
+limit, boundary, precept, regulation
+to
+side
+(relative)
+Jericho
+from
+the north wind, the north
+and
+to go up,to ascend
+in
+mountain
+to
+setting of sun, west
+and
+to be
+going forth, departure
+him
+to
+desert, wilderness
+(relative)
+house
+On
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+from
+there, yonder
+limit, boundary, precept, regulation
+to
+Luz
+upon, because
+side
+(relative)
+Luz
+from
+the south
+she
+she
+house
+El (divine name)
+and
+to descend, PA to bring down, AF to cause to come down
+limit, boundary, precept, regulation
+to
+Ataroth
+Addar
+upon, because
+mountain
+(relative)
+from
+the south
+(relative)
+house
+(Beyt-) Horon
+lower, inferior, lowest, earthly
+and
+to look, to gaze, to behold
+limit, boundary, precept, regulation
+to
+side
+(relative)
+sea, lake
+from
+the south
+from
+mountain
+(relative)
+to
+nostril, countenance
+house
+(Beyt-) Horon
+(relative)
+in
+the south
+and
+to be
+going forth, departure
+him
+upon, because
+Kiriath
+Bael
+(relative)
+she
+she
+Kiriath
+(Kiriath) Naarin
+city, town, province
+(relative)
+son
+Judah
+this
+he
+side
+(relative)
+sea, lake
+and
+side
+(relative)
+the south
+from
+the uttermost part, end, edge, border
+(relative)
+Kiriath
+(Kiriath) Naarin
+and
+to go out, to issue, to proceed forth
+limit, boundary, precept, regulation
+to
+sea, lake
+and
+to go out, to issue, to proceed forth
+to
+spring, source
+(relative)
+water
+(relative)
+Naphtali
+and
+to descend, PA to bring down, AF to cause to come down
+limit, boundary, precept, regulation
+upon, because
+the uttermost part, end, edge, border
+him
+(relative)
+mountain
+to
+nostril, countenance
+torrent, wady, gorge, valley
+(relative)
+Barhinom
+(relative)
+there is
+in
+the deep, depth, low-lying country
+(relative)
+mighty, strong
+(relative)
+from
+the north wind, the north
+and
+to descend, PA to bring down, AF to cause to come down
+limit, boundary, precept, regulation
+(relative)
+Barhinom
+upon, because
+side
+(relative)
+Jebusite
+from
+the south
+and
+to descend, PA to bring down, AF to cause to come down
+to
+eye
+Dugel
+and
+to look, to gaze, to behold
+from
+the north wind, the north
+and
+to go out, to issue, to proceed forth
+to
+spring, source
+(relative)
+Shamosh (name of sun god)
+and
+to go out, to issue, to proceed forth
+upon, because
+Galilee
+(relative)
+opposite, against, before, towards
+ascent, eminence, stairs
+(relative)
+Ramin
+and
+to descend, PA to bring down, AF to cause to come down
+to
+Laban
+and
+to
+Bohan
+(relative)
+male offspring
+him
+(relative)
+Reuben
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+upon, because
+side
+(relative)
+opposite, against, before, towards
+plain, broad valley, level tract, expanse
+from
+the north wind, the north
+and
+to descend, PA to bring down, AF to cause to come down
+to
+plain, broad valley, level tract, expanse
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+limit, boundary, precept, regulation
+upon, because
+side
+(relative)
+house
+Hoglah
+from
+the north wind, the north
+and
+to be
+going forth, departure
+him
+(relative)
+limit, boundary, precept, regulation
+upon, because
+tongue, speech, language
+(relative)
+sea, lake
+(relative)
+salt
+from
+the north wind, the north
+and
+upon, because
+shore, coast
+him
+(relative)
+Jordan
+from
+the south
+this
+he
+limit, boundary, precept, regulation
+(relative)
+the south
+and
+(relative)
+Jordan
+in
+limit, boundary, precept, regulation
+him
+to
+side
+(relative)
+sunrise, east, Persian empire, Syria
+this
+she
+inheritance, portion, lot
+(relative)
+son
+Benjamin
+in
+limit, boundary, precept, regulation
+her
+when, although, because, while
+to go round, to encompass, AF to enclose, to make go round
+to
+generation, family, race, tribe
+them
+and
+to be
+towns
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Benjamin
+to
+generation, family, race, tribe
+them
+Jericho
+and
+Zabith
+and
+Hoglah
+and
+Emek
+and
+Keziz
+and
+house
+Arabah
+and
+Zemaraim
+and
+house
+El (divine name)
+and
+Avvim
+and
+Parah
+and
+Ophrah
+and
+village
+the deep, depth, low-lying country
+and
+Aphli
+and
+Geba
+towns
+four
+ten
+and
+field
+them
+and
+Gibeon
+and
+Ramtha
+and
+Baro
+and
+Mizpah
+and
+Kephirah
+and
+Mazah
+and
+Rekem
+and
+Rephael
+and
+Taralah
+and
+Zelah
+and
+Gebirah
+and
+Jebus
+(relative)
+she
+she
+Jerusalem
+and
+Gibeath
+and
+Kiriathaim
+towns
+four
+ten
+and
+field
+them
+this
+she
+inheritance, portion, lot
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Benjamin
+to
+generation, family, race, tribe
+them
+and
+to go out, to issue, to proceed forth
+piece, part, lot, share
+(relative)
+two
+to
+rod, stripe, tribe
+(relative)
+son
+Shimon, Simeon
+to
+generation, family, race, tribe
+them
+and
+to be
+inheritance, portion, lot
+them
+in
+the inside, inward parts
+inheritance, portion, lot
+(relative)
+son
+Judah
+and
+to be
+to
+them
+in
+inheritance, portion, lot
+them
+Beersheba
+and
+seven
+and
+Moladah
+and
+enclosure, court, chamber
+fox
+and
+Balah
+and
+Azem
+and
+Elothlad
+and
+house
+El (divine name)
+and
+Hormah
+and
+Ziklag
+and
+house
+Marcaboth
+and
+Jezer
+Susah
+and
+house
+Labaoth
+and
+Sharwanan
+towns
+four
+ten
+and
+field
+them
+and
+Ain
+and
+Ramin
+and
+Geter
+and
+Ashan
+towns
+four
+and
+field
+them
+and
+whole
+them
+field
+(relative)
+to go round, to encompass, AF to enclose, to make go round
+to
+them
+to
+towns
+these
+until, as far as, unto, so that
+Labath
+house
+Ramtha
+(relative)
+in
+the south
+this
+she
+inheritance, portion, lot
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Shimon, Simeon
+to
+generation, family, race, tribe
+them
+from
+cord, line, portion, allotment
+(relative)
+son
+Judah
+to be
+inheritance, portion, lot
+(relative)
+son
+Shimon, Simeon
+because of
+(relative)
+much, many, great
+to be
+portion, division, dissension, duplicity
+them
+(relative)
+son
+Judah
+and
+to be heir, to inherit
+son
+Shimon, Simeon
+from
+inheritance, portion, lot
+them
+and
+to go up,to ascend
+piece, part, lot, share
+(relative)
+three
+to
+son
+Zebulun
+to
+generation, family, race, tribe
+them
+and
+to be
+limit, boundary, precept, regulation
+(relative)
+inheritance, portion, lot
+them
+until, as far as, unto, so that
+to
+Ashdod
+and
+to go up,to ascend
+limit, boundary, precept, regulation
+them
+to
+setting of sun, west
+and
+to
+Ramat
+fox
+and
+to meet, to arrive, to happen upon
+in
+Dabbasheth
+and
+to meet, to arrive, to happen upon
+in
+torrent, wady, gorge, valley
+(relative)
+before
+Yokneam
+and
+to turn, to change, to move
+from
+Ashdod
+from
+sunrise, east, Persian empire, Syria
+sun
+upon, because
+limit, boundary, precept, regulation
+(relative)
+Chisloth
+and
+(relative)
+Bethor
+and
+to go out, to issue, to proceed forth
+to
+Rabbah
+and
+to go up,to ascend
+to
+Naphia
+and
+from
+there, yonder
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+at first
+from
+sunrise, east, Persian empire, Syria
+to
+Gath
+and
+to
+Hepher
+and
+to
+Atah
+and
+to
+Kazin
+and
+to go out, to issue, to proceed forth
+to
+Rimmon
+and
+to
+Mathwah
+and
+to
+Avva
+and
+to go round, to encompass, AF to enclose, to make go round
+to
+him
+limit, boundary, precept, regulation
+from
+the north wind, the north
+(relative)
+Haditon
+and
+to be
+going forth, departure
+him
+to
+torrent, wady, gorge, valley
+(relative)
+Caphtanael
+and
+to
+Kattath
+and
+to
+Jahalil
+and
+to
+Samaria
+and
+to
+Aralah
+and
+to
+house
+food, bread
+towns
+two
+ten
+and
+field
+them
+this
+she
+inheritance, portion, lot
+(relative)
+son
+Zebulun
+to
+generation, family, race, tribe
+them
+and
+to go out, to issue, to proceed forth
+piece, part, lot, share
+(relative)
+four
+(relative)
+son
+Issachar
+to
+generation, family, race, tribe
+them
+and
+to be
+limit, boundary, precept, regulation
+them
+Jezreel
+and
+Chisloth
+and
+Shuiam
+and
+Haphiram
+and
+Shenan
+and
+Ahtar
+and
+Diblat (Hebr Riblah)
+and
+Kishon
+and
+Aphaz
+and
+Ramat
+eye
+and
+toil, business, travail
+and
+eye
+Haddah
+and
+house
+Pezian
+and
+to meet, to arrive, to happen upon
+limit, boundary, precept, regulation
+in
+Tor
+and
+in
+Shahazimah
+and
+in
+house
+Shamosh (name of sun god)
+and
+to be
+going forth, departure
+him
+(relative)
+limit, boundary, precept, regulation
+them
+to
+Jordan
+towns
+three
+ten
+and
+field
+them
+this
+she
+inheritance, portion, lot
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Issachar
+to
+generation, family, race, tribe
+them
+towns
+and
+field
+them
+and
+to go out, to issue, to proceed forth
+piece, part, lot, share
+(relative)
+five
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Asher
+to
+generation, family, race, tribe
+them
+and
+to be
+limit, boundary, precept, regulation
+them
+Haklath
+and
+Hali
+and
+Batan
+and
+Achshaph
+and
+Amlech
+and
+Amcar
+and
+Meshael
+and
+to meet, to arrive, to happen upon
+in
+Carmel
+from
+setting of sun, west
+and
+Shihor
+and
+Labaith
+and
+to turn, to change, to move
+from
+sunrise, east, Persian empire, Syria
+sun
+to
+house
+Dagon
+and
+to meet, to arrive, to happen upon
+in
+Zebulun
+and
+in
+torrent, wady, gorge, valley
+(relative)
+Naphtahael
+from
+the north wind, the north
+and
+Dabith
+and
+Umkah
+and
+Danael
+and
+to go out, to issue, to proceed forth
+upon, because
+Cobel
+from
+the north wind, the north
+and
+to
+Ebron
+and
+to
+Rehob
+and
+to
+Hammon
+and
+to
+Kaah
+until, as far as, unto, so that
+to
+Sidon
+great
+and
+to turn, to change, to move
+limit, boundary, precept, regulation
+to
+Ramtha
+and
+until, as far as, unto, so that
+to
+Tyre
+city, town, province
+strong
+and
+to turn, to change, to move
+limit, boundary, precept, regulation
+to
+Has
+and
+to be
+going forth, departure
+him
+to
+setting of sun, west
+from
+torrent, wady, gorge, valley
+(relative)
+Jorab
+and
+Umkah
+and
+Aphek
+and
+Rehob
+towns
+ten
+and
+two
+and
+field
+them
+this
+she
+inheritance, portion, lot
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Asher
+to
+generation, family, race, tribe
+them
+towns
+these
+and
+field
+them
+and
+to go out, to issue, to proceed forth
+piece, part, lot, share
+(relative)
+six
+(relative)
+son
+Naphtali
+to
+generation, family, race, tribe
+them
+and
+to be
+limit, boundary, precept, regulation
+them
+from
+Halpah
+and
+from
+Elon
+and
+from
+Zenam
+and
+Admah
+and
+Nekeb
+and
+Nabael
+until, as far as, unto, so that
+to
+Lakum
+and
+to be
+going forth, departure
+them
+to
+Jordan
+and
+to turn, to change, to move
+limit, boundary, precept, regulation
+to
+setting of sun, west
+to
+Aznothboz
+and
+to go out, to issue, to proceed forth
+from
+there, yonder
+to
+Hakik
+and
+to meet, to arrive, to happen upon
+in
+Zebulun
+from
+the south
+and
+in
+Asher
+to meet, to arrive, to happen upon
+from
+setting of sun, west
+and
+in
+Judah
+in
+Jordan
+from
+sunrise, east, Persian empire, Syria
+sun
+and
+in
+city, town, province
+great, grown up, nobles, chiefs
+in
+Tyre
+and
+in
+Sidon
+and
+in
+Hamath
+and
+Karath
+and
+Kinnereth
+and
+Admah
+and
+Damah
+and
+Hazor
+and
+Kedesh
+and
+Edrei
+and
+eye
+Tyre
+and
+Dion
+and
+Migdalel
+and
+Hadom
+and
+house
+Anath
+and
+house
+Shamosh (name of sun god)
+city, town, province
+nine
+ten
+and
+field
+them
+and
+to go out, to issue, to proceed forth
+piece, part, lot, share
+(relative)
+seven
+(relative)
+son
+Dan
+to
+generation, family, race, tribe
+them
+and
+to be
+limit, boundary, precept, regulation
+(relative)
+inheritance, portion, lot
+them
+Zeda
+and
+Eshtaol
+and
+town, village
+(relative)
+Shamosh (name of sun god)
+and
+Shaalbin
+and
+Aijalon
+and
+Nathlah
+and
+Elon
+and
+Temnah
+and
+Ekron
+and
+Elkath
+and
+Gebton
+and
+Baalath
+and
+Judith
+and
+Beldabach
+and
+Gethrimmon
+and
+Mahrekon
+and
+Carkon
+until, as far as, unto, so that
+to
+limit, boundary, precept, regulation
+(relative)
+opposite, against, before, towards
+Elath
+and
+to go out, to issue, to proceed forth
+limit, boundary, precept, regulation
+(relative)
+son
+him
+(relative)
+Dan
+from
+them
+and
+to go up,to ascend
+son
+Dan
+and
+to do, to make, to work
+nearness, war
+with
+man, human, mortal
+(relative)
+Eino
+and
+to break up, to subjugate, to subdue
+her
+and
+to lay waste, to destroy
+her
+in
+mouth
+(relative)
+sword
+and
+to be heir, to inherit
+her
+and
+to sit, AF, to make dwell, to set, place
+in
+her
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+her
+to
+Eino
+Dan
+upon, because
+name, appellation, title
+Dan
+father
+them
+this
+she
+inheritance, portion, lot
+(relative)
+rod, stripe, tribe
+(relative)
+son
+Dan
+to
+generation, family, race, tribe
+them
+city, town, province
+these
+and
+towns
+and
+field
+them
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+to
+to be heir, to inherit
+her
+to
+earth, land
+in
+limit, boundary, precept, regulation
+her
+and
+to give
+son
+Israel
+inheritance, portion, lot
+to
+Jesus, Joshua
+male offspring
+Nun
+middle
+them
+upon, because
+word, saying, thing, affair
+mouth
+him
+(relative)
+THE LORD
+to give
+to
+him
+town, village
+(relative)
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+to
+Timnathserah
+(relative)
+in
+mountain
+(relative)
+Ephraim
+and
+to build,PA to restore,to edify
+her
+to
+town, village
+and
+to sit, AF, to make dwell, to set, place
+in
+her
+these
+inheritance, portion, lot
+(relative)
+to be heir, to inherit
+Eliazar
+priest
+and
+Jesus, Joshua
+male offspring
+Nun
+and
+head, top, summit
+(relative)
+father
+(relative)
+rod, stripe, tribe
+(relative)
+Israel
+in
+piece, part, lot, share
+in
+Shiloh
+before
+THE LORD
+in
+gate, door, entrance
+(relative)
+tent, tabernacle, habitation
+time, age, era
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+to
+to divide, to have a portion, PA to divide into many parts
+her
+to
+earth, land
+and
+to say
+THE LORD
+to
+Jesus, Joshua
+to say
+to
+son
+Israel
+to leave, to leave behind, to dismiss, to remit
+to
+you
+towns
+to
+deliverance, preservation, salvation
+as, almost, about
+this
+(relative)
+to say
+to
+you
+in
+hand, side
+(relative)
+servant
+me
+Moses
+(relative)
+to flee, to avoid
+to
+there, yonder
+slayer
+who, which, what
+(relative)
+to kill, PA to kill many
+breath, animal soul
+from
+stillness, calm, stupor, silence
+when, although, because, while
+not
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+and
+to be
+to
+you
+to
+deliverance, preservation, salvation
+from
+to seek, demand, avenge, ETHPE to avenge oneself, be avenged, to be required, compelled
+vengeance
+(relative)
+blood, bloodshed
+and
+to flee, to avoid
+to
+one
+from
+these
+towns
+and
+to arise APH raise up, place
+in
+entrance, ingress
+(relative)
+gate, door, entrance
+(relative)
+town, village
+and
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+before
+elder
+(relative)
+town, village
+that
+and
+to say
+word, saying, thing, affair
+him
+and
+to gather, to lay up, to withhold, ETHPE to be gathered, to be withheld, PA to wrap up, to withhold, ETHPA to be gathered
+him
+at, with, towards, for
+them
+in
+town, village
+and
+only ipf to give, to make to be, to put
+to
+him
+place
+to
+to dwell, to stay, to inhabit
+with
+them
+when, although, because, while
+to urge on, banish, chase away, pursue
+to seek, demand, avenge, ETHPE to avenge oneself, be avenged, to be required, compelled
+vengeance
+(relative)
+blood, bloodshed
+after, following
+him
+and
+not
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+him
+in
+hand, side
+him
+to
+slayer
+because of
+(relative)
+when, although, because, while
+not
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+to strike, to beat, to wound
+him
+to
+companion, comrade
+him
+and
+not
+to hate
+to be
+to
+him
+from
+before
+day
+and
+to sit, AF, to make dwell, to set, place
+in
+town, village
+that
+until, as far as, unto, so that
+(relative)
+to arise APH raise up, place
+before
+congregation, synagogue
+in
+judgement, law, custom
+until, as far as, unto, so that
+(relative)
+to die, AF to put to death
+priest
+great
+(relative)
+to be
+in
+day
+those
+and
+then
+to turn, to change, to move
+slayer
+and
+to come
+to
+house
+him
+and
+to
+town, village
+him
+and
+to
+city, town, province
+(relative)
+to flee, to avoid
+from
+her
+then
+to separate, to sever, to divide
+towns
+these
+to
+house
+refuge
+to
+Rekem
+(relative)
+in
+Galilee
+(relative)
+in
+mountain
+(relative)
+Naphtali
+and
+to
+Sichem
+(relative)
+in
+mountain
+(relative)
+Ephraim
+and
+to
+Kiriath
+four
+(relative)
+she
+she
+Hebron
+(relative)
+in
+mountain
+(relative)
+Judah
+and
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+(relative)
+Jericho
+from
+sunrise, east, Persian empire, Syria
+to give
+Bosra
+(relative)
+in
+desert, wilderness
+(relative)
+to sit, AF, to make dwell, to set, place
+in
+plain, broad valley, level tract, expanse
+from
+rod, stripe, tribe
+(relative)
+Reuben
+and
+Ramat
+Gilead
+from
+rod, stripe, tribe
+(relative)
+Gad
+and
+Golan
+(relative)
+in
+Matanin (Hebrew Bashan)
+from
+rod, stripe, tribe
+(relative)
+Manasseh
+these
+they, them
+towns
+(relative)
+rescue
+and
+(relative)
+house
+refuge
+to
+whole
+them
+son
+Israel
+and
+to
+inhabitant
+(relative)
+to dwell, to stay, to inhabit
+middle
+them
+(relative)
+to be
+to flee, to avoid
+to
+there, yonder
+whole
+who, which, what
+(relative)
+to kill, PA to kill many
+breath, animal soul
+from
+stillness, calm, stupor, silence
+(relative)
+not
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+in
+hand, side
+(relative)
+to seek, demand, avenge, ETHPE to avenge oneself, be avenged, to be required, compelled
+vengeance
+(relative)
+blood, bloodshed
+until, as far as, unto, so that
+(relative)
+to arise APH raise up, place
+before
+congregation, synagogue
+in
+judgement, law, custom
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+head, top, summit
+(relative)
+priest
+and
+Levite
+at, with, towards, for
+Eliazar
+priest
+and
+at, with, towards, for
+Jesus, Joshua
+male offspring
+Nun
+and
+at, with, towards, for
+head, top, summit
+(relative)
+father
+(relative)
+rod, stripe, tribe
+(relative)
+Israel
+and
+to say
+to
+them
+in
+Shiloh
+in
+earth, land
+(relative)
+Canaan
+THE LORD
+to visit, to command, to entreat, PA to give commission
+in
+hand, side
+(relative)
+Moses
+(relative)
+only ipf to give, to make to be, to put
+to
+us
+towns
+to
+to dwell, to stay, to inhabit
+in
+them
+and
+field
+them
+to
+sheep, cattle, beasts
+us
+and
+to give
+son
+Israel
+to
+Levite
+from
+inheritance, portion, lot
+them
+upon, because
+word, saying, thing, affair
+mouth
+him
+(relative)
+THE LORD
+towns
+these
+and
+field
+them
+and
+to go out, to issue, to proceed forth
+piece, part, lot, share
+(relative)
+generation, family, race, tribe
+(relative)
+Kohath
+(relative)
+son
+Aaron
+priest
+from
+Levite
+and
+to give
+to
+them
+from
+rod, stripe, tribe
+(relative)
+Judah
+and
+from
+rod, stripe, tribe
+(relative)
+Shimon, Simeon
+and
+from
+rod, stripe, tribe
+(relative)
+Benjamin
+in
+piece, part, lot, share
+towns
+three
+ten
+and
+to
+son
+him
+(relative)
+Kohath
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+to give
+to
+them
+from
+rod, stripe, tribe
+(relative)
+Ephraim
+and
+from
+rod, stripe, tribe
+(relative)
+Dan
+and
+from
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+towns
+ten
+and
+to
+son
+him
+(relative)
+Gershom
+to give
+to
+them
+from
+rod, stripe, tribe
+(relative)
+Issachar
+and
+from
+rod, stripe, tribe
+(relative)
+Asher
+and
+from
+rod, stripe, tribe
+(relative)
+Naphtali
+and
+from
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+in
+Matanin (Hebrew Bashan)
+in
+piece, part, lot, share
+towns
+three
+ten
+and
+to
+son
+him
+(relative)
+Merari
+to
+generation, family, race, tribe
+them
+to give
+to
+them
+from
+rod, stripe, tribe
+(relative)
+Reuben
+and
+from
+rod, stripe, tribe
+(relative)
+Gad
+and
+from
+rod, stripe, tribe
+(relative)
+Zebulun
+towns
+two
+ten
+and
+to give
+son
+Israel
+to
+Levite
+towns
+these
+and
+field
+them
+in
+piece, part, lot, share
+as, almost, about
+this
+(relative)
+to visit, to command, to entreat, PA to give commission
+THE LORD
+to
+Moses
+and
+these
+name, appellation, title
+(relative)
+towns
+(relative)
+to give
+from
+rod, stripe, tribe
+(relative)
+Judah
+and
+from
+rod, stripe, tribe
+(relative)
+Shimon, Simeon
+towns
+in
+name, appellation, title
+them
+and
+to be
+to
+son
+him
+(relative)
+Aaron
+from
+generation, family, race, tribe
+(relative)
+Kohath
+from
+son
+him
+(relative)
+Levi
+because of
+(relative)
+[possessive]
+them
+to be
+piece, part, lot, share
+first
+and
+to give
+to
+them
+to
+Kiriath
+four
+(relative)
+father
+them
+(relative)
+mighty, strong
+(relative)
+she
+she
+Hebron
+(relative)
+in
+mountain
+(relative)
+Judah
+and
+to
+field
+her
+when, although, because, while
+to go round, to encompass, AF to enclose, to make go round
+to
+her
+and
+to
+field, open country
+her
+(relative)
+town, village
+and
+to
+remnant, rest
+(relative)
+field
+her
+to give
+to
+Caleb
+male offspring
+Jephunneh
+in
+inheritance, portion, lot
+him
+and
+to
+son
+Aaron
+priest
+to give
+town, village
+(relative)
+to deliver, preserve, redeem, ranson
+from
+to kill, PA to kill many
+to
+Hebron
+and
+to
+field
+her
+and
+to
+Libnah
+and
+to
+field
+her
+and
+to
+Jarath
+and
+to
+field
+her
+and
+to
+Eshtemoa
+and
+to
+field
+her
+and
+to
+Halo
+and
+to
+field
+her
+and
+to
+Debir
+and
+to
+field
+her
+and
+to
+Ain
+and
+to
+field
+her
+and
+to
+Atah
+and
+to
+field
+her
+and
+to
+house
+Shamosh (name of sun god)
+and
+to
+field
+her
+towns
+nine
+from
+rod, stripe, tribe
+(relative)
+Judah
+and
+(relative)
+Shimon, Simeon
+and
+from
+rod, stripe, tribe
+(relative)
+Benjamin
+Gibeon
+and
+field
+her
+and
+Geba
+and
+field
+her
+and
+Anathoth
+and
+field
+her
+and
+Almon
+and
+field
+her
+city, town, province
+four
+whole
+them
+towns
+(relative)
+son
+Aaron
+priest
+three
+ten
+and
+field
+them
+and
+to
+generation, family, race, tribe
+(relative)
+Levite
+(relative)
+son
+Kohath
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+from
+son
+Kohath
+to be
+towns
+(relative)
+piece, part, lot, share
+them
+from
+rod, stripe, tribe
+(relative)
+Ephraim
+and
+to give
+to
+them
+town, village
+(relative)
+house
+deliverance, preservation, salvation
+(relative)
+slayer
+to
+Sichem
+(relative)
+in
+mountain
+(relative)
+Ephraim
+and
+to
+field
+her
+and
+to
+Geder
+and
+to
+field
+her
+and
+to
+Kabzim
+and
+to
+field
+her
+and
+to
+house
+(Beyt-) Horon
+and
+to
+field
+her
+towns
+four
+and
+field
+them
+and
+from
+rod, stripe, tribe
+(relative)
+Dan
+Athlekah
+and
+field
+her
+and
+Gebton
+and
+field
+her
+and
+Elon
+and
+field
+her
+and
+Gethrimmon
+and
+field
+her
+towns
+four
+and
+field
+them
+and
+from
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+Taanach
+and
+field
+her
+and
+Gethrimmon
+and
+field
+her
+towns
+two
+and
+field
+them
+whole
+them
+towns
+and
+city, town, province
+ten
+and
+field
+them
+to be
+to
+generation, family, race, tribe
+(relative)
+son
+him
+(relative)
+Kohath
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+and
+to
+son
+him
+(relative)
+Gershom
+from
+generation, family, race, tribe
+(relative)
+Levite
+to be
+towns
+them
+from
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+from
+town, village
+(relative)
+house
+rescue
+(relative)
+slayer
+Golan
+(relative)
+in
+Matanin (Hebrew Bashan)
+and
+field
+her
+and
+Astoreth
+and
+field
+her
+towns
+two
+and
+field
+them
+and
+from
+rod, stripe, tribe
+(relative)
+Issachar
+Kishian
+and
+field
+her
+and
+Rabbah
+and
+field
+her
+and
+Jarmuth
+and
+field
+her
+and
+eye
+Gad
+and
+field
+her
+towns
+four
+and
+field
+them
+and
+from
+rod, stripe, tribe
+(relative)
+Asher
+Meshael
+and
+field
+her
+and
+Achron
+and
+field
+her
+and
+Helkuth
+and
+field
+her
+and
+Rehob
+and
+field
+her
+towns
+four
+and
+field
+them
+and
+from
+rod, stripe, tribe
+(relative)
+Naphtali
+town, village
+(relative)
+house
+rescue
+(relative)
+slayer
+Rekem
+(relative)
+in
+Galilee
+and
+field
+her
+and
+Hemrud
+and
+field
+her
+and
+Karthan
+and
+field
+her
+towns
+three
+and
+field
+them
+whole
+them
+towns
+(relative)
+generation, family, race, tribe
+(relative)
+son
+Gershom
+towns
+three
+ten
+and
+field
+them
+and
+from
+rod, stripe, tribe
+(relative)
+Zebulun
+Nakah
+and
+field
+her
+and
+Karthan
+and
+field
+her
+to be
+towns
+them
+from
+rod, stripe, tribe
+(relative)
+Reuben
+Jahaz
+and
+field
+her
+and
+Kedemoth
+and
+field
+her
+and
+Karithin
+and
+field
+her
+and
+Ahshimoth
+and
+field
+her
+towns
+four
+and
+field
+them
+and
+from
+rod, stripe, tribe
+(relative)
+Zebulun
+Nakah
+and
+field
+her
+and
+Karthan
+and
+field
+her
+and
+Dimnah
+and
+field
+her
+and
+Jahlah
+and
+field
+her
+towns
+four
+and
+field
+them
+and
+from
+rod, stripe, tribe
+(relative)
+Gad
+town, village
+(relative)
+rescue
+(relative)
+slayer
+Ramat
+Gilead
+and
+field
+her
+and
+Menahem
+and
+field
+her
+and
+Hesbon
+and
+field
+her
+and
+Jazer
+and
+field
+her
+towns
+four
+and
+field
+them
+these
+towns
+(relative)
+son
+Merari
+to
+generation, family, race, tribe
+them
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+from
+generation, family, race, tribe
+(relative)
+Levite
+and
+to go up,to ascend
+in
+piece, part, lot, share
+them
+towns
+two
+ten
+and
+field
+them
+and
+whole
+them
+towns
+these
+(relative)
+Levite
+in
+the inside, inward parts
+inheritance, portion, lot
+they, them
+(relative)
+son
+Israel
+and
+to be
+towns
+(relative)
+Levite
+four
+and
+eight
+and
+field
+them
+to sit, AF, to make dwell, to set, place
+to be
+then
+towns
+and
+city, town, province
+these
+town, village
+town, village
+and
+field
+them
+to go round, to encompass, AF to enclose, to make go round
+to
+them
+and
+whole
+them
+towns
+these
+and
+city, town, province
+thus, so, such
+and
+to give
+THE LORD
+to
+Israel
+whole
+her
+earth, land
+(relative)
+to swear
+to
+only ipf to give, to make to be, to put
+to
+father
+them
+and
+to be heir, to inherit
+her
+and
+to sit, AF, to make dwell, to set, place
+in
+her
+and
+to rest, to stay quiet
+to
+them
+THE LORD
+from
+whole
+them
+circle, surroundings
+them
+as, almost, about
+(relative)
+to swear
+to
+father
+them
+and
+man, human, mortal
+from
+adversary
+them
+not
+to arise APH raise up, place
+before
+them
+if, O!
+not
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+they, them
+THE LORD
+to
+whole
+them
+adversary
+them
+in
+hand, side
+them
+and
+not
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+one
+from
+whole
+them
+word, saying, thing, affair
+good, exceedingly, very
+(relative)
+to say
+THE LORD
+to
+(relative)
+house
+Israel
+if, O!
+not
+whole
+them
+to be
+then
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+Jesus, Joshua
+to
+son
+Reuben
+and
+to
+son
+Gad
+and
+to
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+and
+to say
+to
+them
+you
+to guard, AF to put in a safe place
+whole
+something, aught
+(relative)
+to say
+to
+you
+Moses
+servant
+him
+(relative)
+THE LORD
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+in
+voice, sound
+me
+to
+whole
+something, aught
+(relative)
+to visit, to command, to entreat, PA to give commission
+you
+and
+not
+to leave, to leave behind, to dismiss, to remit
+to
+brother
+you
+behold
+day
+much, many, great
+until, as far as, unto, so that
+to
+today
+and
+to guard, AF to put in a safe place
+visitation, command
+him
+(relative)
+THE LORD
+god
+you
+and
+this hour
+behold
+to rest, to stay quiet
+THE LORD
+god
+to
+brother
+you
+as, almost, about
+this
+(relative)
+to say
+to
+them
+thence, thereafter, therefore, so then
+to turn, to return, to repent, ETHPE to betake oneself, to turn towards, PA to restore, AF to cause to turn
+and
+to go, to walk
+to
+towns
+you
+and
+to
+earth, land
+(relative)
+inheritance, portion, lot
+you
+(relative)
+to give
+to
+you
+Moses
+servant
+him
+(relative)
+THE LORD
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+from
+sunrise, east, Persian empire, Syria
+in
+only, alone, sole
+then
+to be clear, transparent, careful of, PA to warn, admonish, EtPA (>ZDHR) to take care, watch over
+good, exceedingly, very
+and
+to do, to make, to work
+visitation, command
+and
+nome, prefecture, law, custom, usage
+(relative)
+to visit, to command, to entreat, PA to give commission
+you
+Moses
+servant
+him
+(relative)
+THE LORD
+to
+to love, to desire, PA to have mercy upon
+to
+THE LORD
+god
+you
+and
+to
+to guard, AF to put in a safe place
+visitation, command
+him
+and
+to
+to cleave, to be joined, to adhere
+to
+him
+and
+to
+to labour, to cultivate, to worship
+him
+in
+whole
+him
+heart
+you
+and
+in
+whole
+her
+breath, animal soul
+you
+and
+to kneel, to bow down, PA to bless
+they, them
+Jesus, Joshua
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+they, them
+and
+to go, to walk
+to
+towns
+them
+and
+to
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+to give
+Moses
+in
+Matanin (Hebrew Bashan)
+and
+to
+half, part
+him
+to give
+Jesus, Joshua
+with
+brother
+them
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+from
+setting of sun, west
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+they, them
+Jesus, Joshua
+and
+to go, to walk
+to
+towns
+them
+and
+to kneel, to bow down, PA to bless
+they, them
+and
+to say
+to
+them
+in
+piece of flesh, wealth, riches
+much, many, great
+to turn, to change, to move
+to
+towns
+you
+and
+to
+earth, land
+(relative)
+inheritance, portion, lot
+you
+and
+in
+possessions, landed property
+(relative)
+good, exceedingly, very
+much, many, great
+in
+silver
+and
+in
+gold
+and
+in
+brass
+and
+in
+iron
+and
+in
+long outer garment
+(relative)
+much, many, great
+good, exceedingly, very
+and
+to divide, to have a portion, PA to divide into many parts
+spoil,robbery
+(relative)
+adversary
+you
+with
+brother
+you
+and
+to turn, to change, to move
+and
+to go, to walk
+son
+Reuben
+and
+son
+Gad
+and
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+from
+at, with, towards, for
+son
+Israel
+from
+Shiloh
+(relative)
+in
+earth, land
+(relative)
+Canaan
+to
+to go, to walk
+to
+earth, land
+(relative)
+Gilead
+to
+earth, land
+(relative)
+inheritance, portion, lot
+them
+(relative)
+to be heir, to inherit
+in
+her
+upon, because
+word, saying, thing, affair
+mouth
+him
+(relative)
+THE LORD
+in
+hand, side
+(relative)
+Moses
+and
+to come
+to
+Gilgal
+(relative)
+upon, because
+bank, shore
+Jordan
+(relative)
+in
+earth, land
+(relative)
+Canaan
+and
+to build,PA to restore,to edify
+there, yonder
+son
+Reuben
+and
+son
+Gad
+and
+half, part, section
+rod, stripe, tribe
+(relative)
+Manasseh
+altar
+upon, because
+bank, shore
+Jordan
+altar
+great
+(relative)
+appearance, likeness, vision
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+son
+Israel
+(relative)
+son
+Reuben
+and
+son
+Gad
+and
+half, part, section
+rod, stripe, tribe
+(relative)
+Manasseh
+to build,PA to restore,to edify
+altar
+opposite, against, before, towards
+earth, land
+(relative)
+Canaan
+in
+Gilgal
+(relative)
+upon, because
+bank, shore
+Jordan
+in
+earth, land
+(relative)
+son
+Israel
+and
+to gather together, to collect, PA to assemble, to call together
+whole
+her
+congregation, synagogue
+(relative)
+son
+Israel
+to
+Shiloh
+to
+to go up,to ascend
+upon, because
+them
+to
+nearness, war
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+son
+Israel
+at, with, towards, for
+son
+Reuben
+and
+at, with, towards, for
+son
+Gad
+and
+at, with, towards, for
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+to
+earth, land
+(relative)
+Gilead
+to
+Phinehas
+male offspring
+Eliazar
+priest
+and
+ten
+chief
+people
+him
+one
+one
+great
+from
+whole
+them
+rod, stripe, tribe
+(relative)
+Israel
+and
+they
+man
+these
+head, top, summit
+to be
+(relative)
+strength, power, force
+(relative)
+Israel
+and
+to come
+at, with, towards, for
+son
+Reuben
+and
+at, with, towards, for
+son
+Gad
+and
+at, with, towards, for
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+to
+earth, land
+(relative)
+Gilead
+and
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+them
+and
+to say
+to
+them
+thus, so, such
+to say
+whole
+her
+congregation, synagogue
+(relative)
+THE LORD
+what, why, wherefore
+she
+falsehood, lie, breach of faith
+this
+(relative)
+to be false, PA to lie
+in
+god
+(relative)
+Israel
+and
+to turn, to change, to move
+from
+after, following
+him
+(relative)
+THE LORD
+and
+to build,PA to restore,to edify
+to
+you
+altar
+(relative)
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+from
+fear, dread, awe, worship, idol
+him
+(relative)
+THE LORD
+not
+when, although, because, while
+he
+to
+us
+sin
+(relative)
+Peor
+(relative)
+not
+to be clean, PA to cleanse, purify, ETHPA to be cleansed, purified
+from
+her
+until, as far as, unto, so that
+to
+today
+and
+to be
+plague, pestilence, mortality, slaughter
+in
+congregation, synagogue
+him
+(relative)
+THE LORD
+and
+you
+what
+(relative)
+to turn, to change, to move
+today
+from
+fear, dread, awe, worship, idol
+him
+(relative)
+THE LORD
+from
+the after time, future, tomorrow
+upon, because
+whole
+her
+he
+congregation, synagogue
+(relative)
+Israel
+to be
+rage
+but, but yet, however, nevertheless
+then
+if, O!
+smear
+she
+earth, land
+(relative)
+inheritance, portion, lot
+you
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+to
+you
+to
+earth, land
+(relative)
+inheritance, portion, lot
+him
+(relative)
+THE LORD
+where, whither
+(relative)
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+tent, tabernacle, habitation
+him
+(relative)
+THE LORD
+and
+to be heir, to inherit
+with
+us
+and
+in
+fear, dread, awe, worship, idol
+him
+(relative)
+THE LORD
+not
+to disdain, despise, ETHPE to be despised, neglected, PA to despise, neglect, ETHPA to be despised, APH to despise
+and
+upon, because
+us
+not
+to rebel, to go beyond, to surpass
+because of
+(relative)
+to build,PA to restore,to edify
+to
+you
+altar
+to
+outside area
+from
+altar
+him
+(relative)
+THE LORD
+god
+(relative)
+Israel
+not
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+Achar
+male offspring
+Carmi
+(relative)
+to desire, covet, lust, PALP to make to long, to arouse desire, ETHPALP to long sorely, yearn, earnestly desire, APH to long, covet
+to be
+and
+to take, to receive
+from
+under a ban, accursed, savage
+and
+upon, because
+whole
+her
+congregation, synagogue
+(relative)
+Israel
+to be
+rage
+and
+that
+one
+to be
+man
+and
+whole
+us
+swallow
+in
+sin
+him
+and
+to answer
+son
+Reuben
+and
+son
+Gad
+and
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+and
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+Phinehas
+male offspring
+Eliazar
+priest
+and
+with
+head, top, summit
+(relative)
+strength, power, force
+(relative)
+Israel
+and
+to say
+to
+them
+THE LORD
+he
+god
+(relative)
+god
+god
+god
+THE LORD
+he
+and
+he
+he
+god
+us
+and
+to
+Israel
+he
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+and
+to
+us
+he
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+if, O!
+(relative)
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+from
+him
+and
+if, O!
+(relative)
+PA to raise, ETHPA to be raised, to be exalted, AF to lift up, to act perversely
+he
+in
+fear, dread, awe, worship, idol
+him
+(relative)
+THE LORD
+to do, to make, to work
+us
+thus, so, such
+not
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+us
+today
+if, O!
+to build,PA to restore,to edify
+to
+us
+altar
+(relative)
+to turn, to change, to move
+from
+fear, dread, awe, worship, idol
+him
+(relative)
+THE LORD
+or, either
+(relative)
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+upon, because
+him
+sacrifice, offering
+or, either
+service, labour
+other, next
+THE LORD
+to seek, demand, avenge, ETHPE to avenge oneself, be avenged, to be required, compelled
+in
+hand, side
+us
+if, O!
+not
+to be
+from
+fear, dread, awe, worship, idol
+him
+to do, to make, to work
+her
+this
+and
+(relative)
+not
+to say
+from
+the after time, future, tomorrow
+son
+you
+to
+son
+us
+what, why, wherefore
+there is
+to
+you
+at, with, towards, for
+THE LORD
+god
+(relative)
+Israel
+son
+Reuben
+and
+son
+Gad
+(relative)
+behold
+limit, boundary, precept, regulation
+to give
+THE LORD
+middle
+us
+and
+to
+you
+Jordan
+this
+thence, thereafter, therefore, so then
+not
+there is
+to
+you
+part, portion
+in
+THE LORD
+god
+(relative)
+Israel
+and
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+son
+you
+from
+the after time, future, tomorrow
+to
+son
+us
+(relative)
+not
+fear
+to
+THE LORD
+because of
+this
+he
+to say
+(relative)
+to do, to make, to work
+to
+us
+place, region
+and
+to build,PA to restore,to edify
+to
+us
+altar
+not
+to
+sacrifice, offering
+and
+not
+to
+offering
+if, O!
+not
+to
+witness, evidence, confession
+middle
+us
+and
+to
+you
+and
+middle
+generation
+us
+from
+after, following
+us
+and
+we
+and
+generation
+us
+from
+after, following
+us
+service, labour
+him
+he
+(relative)
+THE LORD
+to labour, to cultivate, to worship
+we
+before
+him
+in
+offering, high place, altar
+us
+and
+in
+sacrifice, victim
+us
+and
+in
+offering
+us
+in
+place, region
+(relative)
+to choose
+THE LORD
+to
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+name, appellation, title
+him
+there, yonder
+and
+(relative)
+not
+to say
+son
+you
+from
+the after time, future, tomorrow
+to
+son
+us
+not
+there is
+to
+you
+part, portion
+in
+THE LORD
+and
+to say
+what
+(relative)
+to say
+to
+us
+and
+to
+generation
+us
+from
+the after time, future, tomorrow
+to say
+to
+them
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+form, shape, pattern
+(relative)
+altar
+him
+(relative)
+THE LORD
+(relative)
+to do, to make, to work
+father
+us
+not
+to
+burnt offering
+peace, safety, welfare
+and
+not
+to
+sacrifice, offering
+if, O!
+not
+(relative)
+to be
+witness
+middle
+us
+and
+to
+you
+God forbid!
+to
+us
+(relative)
+to despise, to reject
+fear, dread, awe, worship, idol
+him
+(relative)
+THE LORD
+and
+to turn, to change, to move
+from
+fear, dread, awe, worship, idol
+him
+(relative)
+THE LORD
+and
+to build,PA to restore,to edify
+to
+us
+altar
+to
+burnt offering
+peace, safety, welfare
+and
+to
+offering
+and
+to
+sacrifice, offering
+to
+outside area
+from
+altar
+him
+(relative)
+THE LORD
+god
+(relative)
+Israel
+(relative)
+there is
+before
+tent, tabernacle, habitation
+him
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+Phinehas
+male offspring
+Eliazar
+priest
+and
+chief
+(relative)
+congregation, synagogue
+head, top, summit
+(relative)
+strength, power, force
+(relative)
+Israel
+(relative)
+with
+him
+word, saying, thing, affair
+(relative)
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+son
+Reuben
+and
+son
+Gad
+and
+half, part
+him
+(relative)
+rod, stripe, tribe
+(relative)
+Manasseh
+and
+to be fair, to be merry, to please, ETHPE to be pleased, ETHPA to be pleasing, to find favour, APH to do well, to make fair
+in
+eye
+them
+and
+to say
+Phinehas
+male offspring
+Eliazar
+priest
+to
+son
+Reuben
+and
+to
+son
+Gad
+and
+to
+son
+Manasseh
+today
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+middle
+us
+he
+THE LORD
+(relative)
+not
+PA to lie, to deceive
+in
+THE LORD
+falsehood, treacher, unfaithfulness
+this
+thence, thereafter, therefore, so then
+you
+PA to deliver, to set free, pss.ptc. guiltless
+to
+son
+Israel
+(relative)
+not
+to be
+in
+them
+hand, side
+him
+(relative)
+THE LORD
+to
+rage
+and
+to turn, to change, to move
+Phinehas
+male offspring
+Eliazar
+priest
+and
+chief
+(relative)
+people
+him
+from
+at, with, towards, for
+son
+Reuben
+and
+from
+at, with, towards, for
+son
+Gad
+and
+Manasseh
+from
+earth, land
+(relative)
+Gilead
+to
+earth, land
+(relative)
+Canaan
+at, with, towards, for
+son
+Israel
+and
+to return, to flow back, to repent
+they, them
+word, saying, matter, thing
+and
+to be fair, to be merry, to please, ETHPE to be pleased, ETHPA to be pleasing, to find favour, APH to do well, to make fair
+word, saying, matter, thing
+in
+eye
+son
+Israel
+and
+to kneel, to bow down, PA to bless
+son
+Israel
+to
+god
+and
+not
+to say
+(relative)
+to go up,to ascend
+upon, because
+them
+to
+nearness, war
+to
+to lay waste, to destroy
+her
+to
+earth, land
+(relative)
+son
+Reuben
+and
+(relative)
+son
+Gad
+and
+(relative)
+son
+Manasseh
+(relative)
+to sit, AF, to make dwell, to set, place
+in
+her
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+son
+Reuben
+and
+son
+Gad
+and
+son
+Manasseh
+to
+altar
+(relative)
+to do, to make, to work
+altar
+(relative)
+witness, evidence, confession
+because of
+(relative)
+witness, evidence, confession
+he
+middle
+them
+and
+THE LORD
+he
+in
+only, alone, sole
+god
+and
+from
+after, following
+day
+much, many, great
+to rest, to stay quiet
+THE LORD
+to
+Israel
+from
+whole
+them
+adversary
+them
+(relative)
+to go round, to encompass, to roll up, to wrap round, AF to make to turn round
+to
+them
+and
+Jesus, Joshua
+to grow old, to collect, to pick up,Pass ptcp de=QCJC, ETHPE to be the eldest, PA to place as eldest, to give precedence
+and
+to enter, AF to bring in, to carry in
+in
+year
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+Jesus, Joshua
+to
+whole
+him
+Israel
+to
+elder
+him
+and
+to
+head, top, summit
+him
+and
+to
+judgement, law, custom
+him
+and
+to
+scribe
+him
+and
+to say
+to
+them
+I
+to grow old
+and
+to enter, AF to bring in, to carry in
+in
+year
+and
+you
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+whole
+(relative)
+to do, to make, to work
+THE LORD
+god
+you
+to
+whole
+them
+people
+these
+(relative)
+to perish, to come to naught. AF to destroy
+they, them
+from
+before
+you
+and
+THE LORD
+god
+you
+he
+he
+to do, to make, to work
+nearness, war
+you
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+then
+(relative)
+not
+to divide, to have a portion, PA to divide into many parts
+to
+you
+people
+these
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+in
+inheritance, portion, lot
+(relative)
+rod, stripe, tribe
+you
+from
+Jordan
+and
+whole
+them
+people
+(relative)
+to lay waste, to destroy
+and
+sea, lake
+great
+in
+setting of sun, west
+sun
+to divide, to have a portion, PA to divide into many parts
+to
+you
+THE LORD
+god
+you
+he
+to break, to rend, PA to break, to shatter
+they, them
+and
+to lay waste, to destroy
+they, them
+from
+before
+you
+and
+to be heir, to inherit
+earth, land
+them
+as, almost, about
+(relative)
+to say
+to
+you
+THE LORD
+god
+you
+in
+only, alone, sole
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+good, exceedingly, very
+and
+to strike, to push back APH PA to strike
+and
+to do, to make, to work
+whole
+(relative)
+to write, ETHPE to be written, APH to write
+in
+writing, book, letters
+(relative)
+nome, prefecture, law, custom, usage
+(relative)
+Moses
+servant
+him
+(relative)
+THE LORD
+and
+not
+to turn aside, to depart (from)
+from
+him
+not
+to
+right-hand side
+and
+not
+to
+left, left hand
+and
+not
+to mix, to mingle, ETHPE to join, to take part with, PA to mix thoroughly, ETHPA to be admitted, to have part with, to make alliance
+in
+people
+these
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+middle
+you
+and
+name, appellation, title
+(relative)
+god
+them
+not
+to remember, to call to mind, to be mindful of
+and
+not
+to swear
+in
+them
+and
+not
+to labour, to cultivate, to worship
+they, them
+and
+not
+to bow, to do obeisance
+to
+them
+if, O!
+not
+to
+THE LORD
+god
+you
+to cleave, to be joined, to adhere
+as, almost, about
+this
+(relative)
+to do, to make, to work
+until, as far as, unto, so that
+to
+today
+and
+to lay waste, to destroy
+THE LORD
+from
+before
+you
+people
+great, grown up, nobles, chiefs
+and
+strong
+and
+man, human, mortal
+not
+to arise APH raise up, place
+opposite, against, before, towards
+you
+until, as far as, unto, so that
+to
+today
+man
+one
+from
+you
+to urge on, banish, chase away, pursue
+to
+thousand
+because of
+(relative)
+THE LORD
+god
+you
+with
+you
+and
+he
+to do, to make, to work
+nearness, war
+you
+as, almost, about
+this
+(relative)
+to say
+to
+you
+to be clear, transparent, careful of, PA to warn, admonish, EtPA (>ZDHR) to take care, watch over
+good, exceedingly, very
+in
+breath, animal soul
+you
+to
+fear
+to
+THE LORD
+god
+you
+if, O!
+then
+to turn, to change, to move
+and
+to cleave, to be joined, to adhere
+in
+remnant, rest
+(relative)
+these
+people
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+middle
+you
+and
+to be
+to
+them
+one connected by marriage
+and
+to mix, to mingle, ETHPE to join, to take part with, PA to mix thoroughly, ETHPA to be admitted, to have part with, to make alliance
+in
+them
+and
+they
+in
+you
+to be
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+good, good things
+not
+AF to add, to increase, to be greater
+THE LORD
+god
+you
+to
+to lay waste, to destroy
+to
+these
+people
+from
+before
+you
+and
+to be
+to
+you
+to
+snare
+and
+to
+stumbling block, offence, scandal
+and
+sharp point
+in
+temple (of the head)
+you
+and
+hook
+in
+eye
+you
+until, as far as, unto, so that
+(relative)
+to perish, to come to naught. AF to destroy
+from
+earth, land
+good, exceedingly, very
+(relative)
+to give
+to
+you
+THE LORD
+god
+you
+I
+then
+behold
+to go, to walk
+I
+in
+way, road, custom
+(relative)
+whole
+her
+earth, land
+you
+then
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+you
+in
+whole
+him
+heart
+you
+and
+in
+whole
+her
+breath, animal soul
+you
+(relative)
+not
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+word, saying, thing, affair
+one
+from
+whole
+them
+word, saying, thing, affair
+good, exceedingly, very
+(relative)
+to say
+THE LORD
+god
+you
+upon, because
+you
+whole
+them
+to come
+upon, because
+you
+and
+not
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+word, saying, thing, affair
+one
+and
+as, almost, about
+this
+then
+(relative)
+to come
+upon, because
+you
+whole
+them
+word, saying, thing, affair
+good, exceedingly, very
+(relative)
+to say
+to
+you
+THE LORD
+god
+you
+thus, so, such
+to come
+upon, because
+you
+whole
+them
+curse, malediction, imprecation
+until, as far as, unto, so that
+(relative)
+to perish, to come to naught. AF to destroy
+you
+from
+earth, land
+this
+good, exceedingly, very
+(relative)
+to give
+to
+you
+if, O!
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+upon, because
+covenant
+(relative)
+THE LORD
+god
+you
+and
+upon, because
+visitation, command
+(relative)
+to visit, to command, to entreat, PA to give commission
+and
+to go, to walk
+and
+to labour, to cultivate, to worship
+to
+god
+other
+and
+to bow, to do obeisance
+to
+them
+to burn with anger, PA to enrage, ETHPA to rage, be furious, to provoke, APH to provoke, anger, vex
+rage
+him
+(relative)
+THE LORD
+god
+you
+upon, because
+you
+and
+to perish, to come to naught. AF to destroy
+in
+quickly, forthwith
+from
+earth, land
+good, exceedingly, very
+(relative)
+to give
+to
+you
+and
+to gather together, to collect, PA to assemble, to call together
+Jesus, Joshua
+to
+whole
+them
+rod, stripe, tribe
+(relative)
+Israel
+to
+Sichem
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to
+elder
+(relative)
+Israel
+and
+to
+head, top, summit
+them
+and
+to
+judgement, law, custom
+them
+and
+to
+scribe
+them
+and
+to arise APH raise up, place
+before
+tent, tabernacle, habitation
+time, age, era
+before
+god
+and
+to say
+Jesus, Joshua
+to
+whole
+him
+people
+thus, so, such
+to say
+THE LORD
+god
+(relative)
+Israel
+in
+passing over, ford, strait, further shore
+(relative)
+stream, river, canal
+to sit, AF, to make dwell, to set, place
+to be
+father
+you
+from
+age, era, eternity
+Terah
+father
+him
+(relative)
+Abraham
+and
+father
+him
+(relative)
+Nahor
+and
+to labour, to cultivate, to worship
+to be
+there, yonder
+to
+god
+other
+and
+to lead, to guide, PA to lead, to guide, to drive
+to
+Abraham
+father
+you
+from
+passing over, ford, strait, further shore
+(relative)
+stream, river, canal
+and
+PA to go, to walk
+him
+in
+whole
+her
+earth, land
+(relative)
+Canaan
+and
+to increase, AF to make more, increase, add
+seed, offspring
+him
+and
+to give
+to
+him
+to
+Isaac
+and
+to give
+to
+Isaac
+to
+Jacob
+and
+to
+Esau
+and
+to give
+to
+Esau
+heritage, possession
+mountain
+(relative)
+Seir
+and
+Jacob
+and
+son
+him
+to descend, PA to bring down, AF to cause to come down
+to
+Egypt
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+to
+Moses
+and
+to
+Aaron
+and
+to strike, to beat, to wound
+to
+Egyptian
+and
+marvel, wonder
+to do, to make, to work
+middle
+them
+and
+from
+after, following
+then
+to go out, to issue, to proceed forth
+you
+and
+to go out, to issue, to proceed forth
+to
+father
+you
+from
+Egypt
+and
+to come
+they, them
+to
+sea, lake
+and
+to urge on, banish, chase away, pursue
+Egyptian
+after, following
+father
+you
+in
+two-horse chariot
+and
+in
+horseman
+to
+sea, lake
+(relative)
+Red Sea
+and
+bellow, low, cry out
+father
+you
+at, with, towards, for
+THE LORD
+and
+to do, to make, to work
+darkness
+middle
+them
+to
+Egyptian
+and
+to divide, to have a portion, PA to divide into many parts
+THE LORD
+sea, lake
+(relative)
+Red Sea
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+to
+father
+you
+in
+the inside, inward parts
+him
+and
+to come
+him
+to
+sea, lake
+upon, because
+Egyptian
+and
+to cover, PA to cover, to hide, to conceal, ETHPA to be covered, clothed
+they, them
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+eye
+you
+something, aught
+(relative)
+to do, to make, to work
+to
+Egyptian
+and
+to come
+you
+to
+desert, wilderness
+and
+to sit, AF, to make dwell, to set, place
+in
+desert, wilderness
+day
+much, many, great
+and
+to come
+to
+earth, land
+(relative)
+Amorite
+(relative)
+to sit, AF, to make dwell, to set, place
+in
+passing over, ford, strait, further shore
+(relative)
+Jordan
+and
+to beat, to strive, to contend, ETHPE to be in an uproar, to make great effort, ETHPA to strive, to fight against
+with
+you
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+they, them
+in
+hand, side
+you
+and
+to perish, to come to naught. AF to destroy
+they, them
+from
+before
+you
+and
+to be heir, to inherit
+earth, land
+them
+and
+to arise APH raise up, place
+Balak
+male offspring
+Zippor
+king
+(relative)
+Moabite
+and
+to beat, to strive, to contend, ETHPE to be in an uproar, to make great effort, ETHPA to strive, to fight against
+with
+Israel
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to
+Balaam
+male offspring
+Beor
+to
+to curse
+you
+and
+not
+to be willing, to wish, to seek to
+to
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+him
+to
+Balaam
+and
+to kneel, to bow down, PA to bless
+to kneel, to bow down, PA to bless
+you
+and
+PA to deliver, to set free, pss.ptc. guiltless
+you
+from
+hand, side
+him
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+Jordan
+and
+to come
+to
+Jericho
+and
+to beat, to strive, to contend, ETHPE to be in an uproar, to make great effort, ETHPA to strive, to fight against
+with
+you
+man
+(relative)
+Jericho
+and
+Amorite
+and
+Canaanite
+and
+Perizzite
+and
+Hittite
+and
+Girgashite
+and
+Hivite
+and
+Jebusite
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+they, them
+in
+hand, side
+you
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+before
+you
+bee, hornet
+and
+to perish, to come to naught. AF to destroy
+from
+before
+you
+two
+king
+them
+(relative)
+Amorite
+not
+in
+sword
+you
+even
+not
+in
+bow
+you
+and
+to give
+to
+you
+earth, land
+(relative)
+not
+to be weary, ETHPE to be wearied by labour, APH to weary, fatigue, trouble
+in
+her
+and
+towns
+(relative)
+not
+to build,PA to restore,to edify
+and
+to sit, AF, to make dwell, to set, place
+in
+them
+and
+vineyard, vine
+and
+olive tree and fruit, olive oil, olive garden
+(relative)
+not
+to plant, to implant, to fix, to found
+behold
+to eat, to consume
+you
+thence, thereafter, therefore, so then
+fear
+from
+THE LORD
+and
+to labour, to cultivate, to worship
+him
+in
+guilelessness, harmlessness, simplicity, innocence
+and
+in
+truth, right, justice
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+from
+heart
+you
+god
+strange, foreign, alien
+(relative)
+to labour, to cultivate, to worship
+father
+you
+in
+passing over, ford, strait, further shore
+(relative)
+stream, river, canal
+and
+in
+Egypt
+and
+you
+to labour, to cultivate, to worship
+to
+THE LORD
+and
+if, O!
+evil
+he
+in
+eye
+you
+to
+to labour, to cultivate, to worship
+to
+THE LORD
+to choose
+to
+you
+today
+to
+who, which, what
+to labour, to cultivate, to worship
+you
+if, O!
+to
+god
+(relative)
+to labour, to cultivate, to worship
+father
+you
+in
+passing over, ford, strait, further shore
+(relative)
+stream, river, canal
+and
+if, O!
+to
+god
+(relative)
+Amorite
+(relative)
+to dwell, to stay, to inhabit
+you
+in
+earth, land
+them
+I
+then
+and
+son
+house
+me
+to
+THE LORD
+he
+god
+to labour, to cultivate, to worship
+we
+and
+to answer
+whole
+him
+people
+and
+to say
+God forbid!
+to
+us
+(relative)
+to leave, to leave behind, to dismiss, to remit
+to
+THE LORD
+and
+to labour, to cultivate, to worship
+to
+god
+other
+because of
+(relative)
+THE LORD
+he
+god
+us
+that
+(relative)
+to go up,to ascend
+us
+from
+earth, land
+(relative)
+Egypt
+from
+house
+servitude
+and
+to do, to make, to work
+before
+us
+these
+sign, token
+great, grown up, nobles, chiefs
+and
+to guard, AF to put in a safe place
+us
+in
+whole
+her
+way, road, custom
+(relative)
+PA to go, to walk
+in
+her
+and
+in
+whole
+them
+people
+(relative)
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+middle
+them
+and
+to perish, to come to naught. AF to destroy
+they, them
+THE LORD
+god
+us
+to
+whole
+them
+people
+these
+and
+to
+Amorite
+(relative)
+to dwell, to stay, to inhabit
+we
+in
+earth, land
+them
+to perish, to come to naught. AF to destroy
+they, them
+THE LORD
+from
+before
+us
+because of
+this
+to
+THE LORD
+he
+to labour, to cultivate, to worship
+we
+because of
+(relative)
+he
+he
+god
+in
+only, alone, sole
+him
+and
+he
+he
+god
+us
+and
+to say
+Jesus, Joshua
+to
+people
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+then
+lest, that not, why, is it not?
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+you
+to
+to labour, to cultivate, to worship
+to
+THE LORD
+because of
+(relative)
+god
+he
+pure, holy
+and
+god
+he
+jealous, zealous
+and
+not
+then
+to leave, to leave behind, to dismiss, to remit
+to
+debt
+you
+and
+to
+sin, fault
+you
+lest, that not, why, is it not?
+to leave, to leave behind, to dismiss, to remit
+him
+to
+THE LORD
+and
+to labour, to cultivate, to worship
+to
+god
+other
+strange, foreign, alien
+(relative)
+earth, land
+and
+to turn, to change, to move
+THE LORD
+to
+to be evil, AF to do evil, to hurt
+to
+you
+and
+to finish, to accomplish, PA to make perfect, to bring to an end
+you
+from
+after, following
+(relative)
+to be good, AF to do good
+to
+you
+and
+to say
+people
+to
+Jesus, Joshua
+not
+to be
+to
+us
+service, labour
+other, next
+if, O!
+not
+to
+THE LORD
+he
+god
+to labour, to cultivate, to worship
+we
+and
+to say
+Jesus, Joshua
+to
+people
+to witness, to testify, AF to bear witness, to attest
+you
+in
+breath, animal soul
+you
+(relative)
+you
+to choose
+to
+you
+to
+to labour, to cultivate, to worship
+to
+THE LORD
+and
+to say
+to
+him
+to witness, to testify, AF to bear witness, to attest
+we
+to say
+to
+them
+Jesus, Joshua
+thence, thereafter, therefore, so then
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+god
+strange, foreign, alien
+(relative)
+middle
+you
+and
+to be in good order, to be established, PA to construct to fashion, AF to construct, to fix, to furnish
+heart
+you
+at, with, towards, for
+THE LORD
+god
+(relative)
+Israel
+and
+to say
+people
+to
+Jesus, Joshua
+to
+THE LORD
+god
+us
+to labour, to cultivate, to worship
+we
+and
+in
+voice, sound
+him
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+we
+and
+to arise APH raise up, place
+Jesus, Joshua
+covenant
+to
+people
+in
+him
+in
+day
+that
+and
+to learn, PA to teach, to train
+they, them
+visitation, command
+and
+judgement, law, custom
+in
+Sichem
+and
+to write, ETHPE to be written, APH to write
+Jesus, Joshua
+word, saying, thing, affair
+these
+in
+writing, book, letters
+(relative)
+nome, prefecture, law, custom, usage
+him
+(relative)
+god
+and
+to take, to receive
+stone
+great
+and
+to arise APH raise up, place
+her
+under, beneath
+oak, terebinth
+(relative)
+house
+sanctuary, holy place
+him
+(relative)
+THE LORD
+and
+to say
+Jesus, Joshua
+to
+whole
+him
+people
+behold
+stone
+this
+to be
+to
+us
+witness, evidence, confession
+because of
+(relative)
+she
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+whole
+them
+word, saying, thing, affair
+him
+(relative)
+THE LORD
+(relative)
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+us
+and
+to be
+to
+you
+to
+witness, evidence, confession
+(relative)
+not
+to be false, PA to lie
+in
+THE LORD
+god
+you
+and
+from
+after, following
+(relative)
+to visit, to command, to entreat, PA to give commission
+Jesus, Joshua
+to
+people
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+they, them
+man, human, mortal
+to
+inheritance, portion, lot
+him
+and
+from
+after, following
+word, saying, thing, affair
+these
+to die, AF to put to death
+Jesus, Joshua
+male offspring
+Nun
+servant
+him
+(relative)
+THE LORD
+male offspring
+hundred
+and
+ten
+year
+and
+to bury, PA to bury many, to heap up
+him
+in
+limit, boundary, precept, regulation
+(relative)
+inheritance, portion, lot
+him
+in
+Timnathserah
+(relative)
+in
+mountain
+(relative)
+Ephraim
+from
+the north wind, the north
+to
+mountain
+(relative)
+Gaash
+and
+to labour, to cultivate, to worship
+Israel
+to
+THE LORD
+whole
+them
+day
+him
+(relative)
+Jesus, Joshua
+and
+whole
+them
+day
+(relative)
+elder
+(relative)
+to live, to be alive, AF to keep alive
+length, duration
+after, following
+Jesus, Joshua
+and
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+work
+him
+(relative)
+THE LORD
+(relative)
+to do, to make, to work
+to
+Israel
+and
+to
+bone, stone of fruit, tusks
+him
+(relative)
+Joseph
+(relative)
+to go up,to ascend
+son
+Israel
+from
+Egypt
+to bury, PA to bury many, to heap up
+in
+Sichem
+in
+portion, division, dissension, duplicity
+(relative)
+field, open country
+(relative)
+to buy, PA to sell, ETHPA to be sold (>ZDBN)
+Jacob
+from
+Hamor
+father
+him
+(relative)
+Sichem
+in
+hundred
+sheep, ewe
+and
+to be
+inheritance, portion, lot
+to
+son
+Joseph
+and
+Eliazar
+priest
+male offspring
+Aaron
+priest
+to die, AF to put to death
+and
+to bury, PA to bury many, to heap up
+him
+in
+Gebathah
+(relative)
+Phinehas
+male offspring
+him
+(relative)
+to give
+to
+him
+in
+mountain
+(relative)
+Ephraim
+and
 to be
 from
 after, following
@@ -149063,6 +165822,10696 @@ and
 multitude, great part
 (relative)
 sheep, cattle, beasts
+in
+year
+three
+(relative)
+reign, kingdom, majesty
+him
+(relative)
+Jehoiakim
+king
+(relative)
+Judah
+to come
+Nebuchadnezzar
+king
+(relative)
+Babel
+to
+Jerusalem
+and
+to go round, to encompass, AF to enclose, to make go round
+her
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+her
+THE LORD
+in
+hand, side
+him
+and
+to
+Jehoiakim
+king
+(relative)
+Judah
+and
+to
+vessel, utensil, instrument, garment
+(relative)
+house
+him
+(relative)
+THE LORD
+and
+from
+vessel, utensil, instrument, garment
+(relative)
+house
+him
+(relative)
+THE LORD
+PA to hand down, to transmit, AF to bring, to lead
+they, them
+to
+earth, land
+(relative)
+Shinar
+to
+house
+idol
+him
+and
+vessel, utensil, instrument, garment
+to enter, AF to bring in, to carry in
+to
+house
+treasure, treasury
+(relative)
+idol
+him
+and
+to say
+king
+to
+Eshpaz
+great
+to believe
+(relative)
+to come
+from
+son
+Israel
+and
+from
+seed, offspring
+reign, kingdom, majesty
+and
+from
+Parthian
+young
+(relative)
+spot, mark, blemish
+not
+there is
+in
+them
+who, which, what
+(relative)
+fair, good, lovely, pleasing
+in
+appearance, likeness, vision
+them
+and
+understanding, capable
+in
+wisdom
+and
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+information, knowledge, doctrine
+and
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+in
+mind, intellect, understanding
+who, which, what
+(relative)
+to be able, to be allowed, ETHPE to be able, to dare, to oppose
+in
+might, strength, force
+to
+to arise APH raise up, place
+in
+palace, temple
+(relative)
+king
+to
+PA to serve, ETHPA to be served
+him
+and
+to
+to learn, PA to teach, to train
+they, them
+writing, book, letters
+and
+tongue, speech, language
+(relative)
+Chaldean
+and
+to arise APH raise up, place
+to
+them
+king
+pillar
+(relative)
+day
+from
+royal food
+(relative)
+king
+and
+from
+must, wine
+(relative)
+to drink, to imbibe
+and
+to
+to grow, to grow up, PA to bring up, to educate
+they, them
+year
+three
+and
+then
+to arise APH raise up, place
+before
+king
+and
+to be
+in
+them
+from
+son
+Judah
+Daniel
+and
+Hananiah
+and
+Mishael
+and
+Azariah, Adaiah
+and
+PA to name, to call, ETHPA to be called, named
+to
+them
+great
+to believe
+name, appellation, title
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to
+Daniel
+Baltasar
+and
+to
+Hananiah
+Shadrach
+and
+to
+Mishael
+Meshach
+and
+to
+Azariah, Adaiah
+Abednego
+and
+to put, to lay up, to constitute
+Daniel
+in
+mind, intellect, conscience, opinion
+him
+(relative)
+not
+to eat, to consume
+from
+royal food
+(relative)
+king
+and
+not
+to drink, to imbibe
+from
+must, wine
+(relative)
+to drink, to imbibe
+and
+to seek
+from
+great
+to believe
+(relative)
+not
+to eat, to consume
+him
+and
+to give
+god
+goodness, favour, kindness
+and
+womb, tenderness, compassion
+to
+Daniel
+before
+great
+to believe
+and
+to say
+great
+to believe
+to
+Daniel
+fear
+I
+from
+lord
+me
+king
+(relative)
+to visit, to command, to entreat, PA to give commission
+upon, because
+food, suburbs
+you
+and
+upon, because
+drinking, feast
+you
+lest, that not, why, is it not?
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+nostril, countenance
+you
+PA to reproach
+from
+(relative)
+young
+son
+year
+you
+and
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+head, top, summit
+me
+king
+and
+to say
+Daniel
+to
+Menezar
+that
+(relative)
+to bear rule, to bear sway, AF to set in authority
+him
+great
+to believe
+upon, because
+Daniel
+and
+upon, because
+Hananiah
+and
+upon, because
+Mishael
+and
+upon, because
+Azariah, Adaiah
+PA to try, to prove, to make trial of
+they, them
+to
+servant
+you
+day
+ten
+and
+only ipf to give, to make to be, to put
+to
+us
+grains of seed, vegetables
+to
+to eat, to consume
+and
+water
+to
+to drink, to imbibe
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+appearance
+us
+and
+appearance
+(relative)
+young
+(relative)
+to eat, to consume
+from
+royal food
+(relative)
+king
+and
+as, almost, about
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+you
+thus, so, such
+to do, to make, to work
+with
+servant
+you
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+to
+word, saying, thing, affair
+them
+this
+and
+PA to try, to prove, to make trial of
+they, them
+day
+ten
+and
+from
+after, following
+ten
+day
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+nostril, countenance
+them
+fair, good, lovely, pleasing
+and
+to be or grow fat, to ripen, ETHPE to grow fat, PA to fatten
+flesh, body
+them
+good, exceedingly, very
+from
+(relative)
+young
+whole
+them
+(relative)
+to eat, to consume
+from
+royal food
+(relative)
+king
+and
+Menezar
+to take, to receive
+to be
+to
+him
+lifting up
+them
+and
+must, wine
+(relative)
+drinking, feast
+them
+and
+to give
+to be
+to
+them
+grains of seed, vegetables
+to
+to eat, to consume
+and
+water
+to
+to drink, to imbibe
+and
+to
+young
+these
+four
+them
+to give
+to
+them
+god
+information, knowledge, doctrine
+and
+intelligence, understanding, thought
+in
+whole
+writing, book, letters
+and
+wisdom
+and
+Daniel
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+to be
+in
+whole
+appearance, likeness, vision
+and
+dream
+and
+from
+after, following
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+day
+(relative)
+to visit, to command, to entreat, PA to give commission
+king
+to come
+they, them
+great
+to believe
+before
+Nebuchadnezzar
+king
+and
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+them
+king
+and
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+in
+whole
+them
+as, almost, about
+Daniel
+and
+Hananiah
+and
+Mishael
+and
+Azariah, Adaiah
+and
+to arise APH raise up, place
+before
+king
+and
+whole
+word, saying, thing, affair
+(relative)
+wisdom
+and
+(relative)
+intelligence, understanding, thought
+(relative)
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+they, them
+king
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+they, them
+greater, overmuch, superfluous
+ten
+part, portion
+upon, because
+whole
+sorcerer
+and
+enchanter, charmer
+(relative)
+there is
+in
+reign, kingdom, majesty
+him
+and
+to be
+Daniel
+until, as far as, unto, so that
+to
+year
+one
+(relative)
+Cyrus
+king
+in
+year
+two
+(relative)
+reign, kingdom, majesty
+him
+(relative)
+Nebuchadnezzar
+to dream, ETHPE to recover health, PA to heal
+Nebuchadnezzar
+dream
+and
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+breath, wind, spirit
+him
+and
+sleep
+him
+to be
+upon, because
+him
+and
+to say
+king
+to
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to
+sorcerer
+and
+to
+enchanter, charmer
+and
+to
+magian
+and
+to
+Chaldean
+to
+PA to show
+to
+king
+dream
+him
+and
+to come
+and
+to arise APH raise up, place
+before
+king
+and
+to say
+to
+them
+king
+dream
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+and
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+breath, wind, spirit
+me
+to
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+him
+to
+dream
+and
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+Chaldean
+before
+king
+in Aramaic
+and
+to say
+king
+to
+age, era, eternity
+to live, to be alive, AF to keep alive
+to say
+dream
+to
+servant
+you
+and
+interpretation
+him
+we
+PA to show
+to answer
+king
+and
+to say
+to
+Chaldean
+true
+that
+word, saying, thing, affair
+(relative)
+to say
+(relative)
+if, O!
+not
+PA to show
+me
+dream
+and
+interpretation
+him
+limb, member
+limb, member
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+and
+house
+you
+to spoil, to plunder
+if, O!
+then
+dream
+and
+interpretation
+him
+PA to show
+me
+gift, present, favour
+and
+riches, opulence
+and
+honour, glory
+much, many, great
+PE to accuse, to impeach, PA to receive, to accept, AF to be opposite, to face
+from
+me
+in
+only, alone, sole
+dream
+and
+interpretation
+him
+PA to show
+me
+to answer
+again, back
+and
+to say
+to
+him
+king
+dream
+to say
+to
+servant
+him
+and
+interpretation
+him
+we
+PA to show
+to answer
+king
+and
+to say
+truly, verily, indeed
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+I
+(relative)
+time, age, era
+he
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+you
+because of
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+true
+she
+word, saying, thing, affair
+me
+(relative)
+if, O!
+dream
+not
+PA to show
+me
+one
+she
+law
+you
+and
+word, saying, thing, affair
+lying, false
+and
+to comb, to torture with iron, to make void, ETHPE to be combed, to become empty, PA to empty, lay bare, lay waste, ETHPA to be emptied out, left bare, ETHPAU to be overclouded
+to feed, to rule, to be contented, ETHPE to feed, to think, PA to please, to appease, to heal
+to
+to say
+before
+me
+while, until, unto
+time, age, era
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+if, O!
+not
+dream
+to say
+to
+me
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+even
+interpretation
+him
+PA to show
+you
+to
+me
+to answer
+Chaldean
+and
+to say
+before
+king
+not
+there is
+man, human, mortal
+upon, because
+earth, land
+(relative)
+word, saying, thing, affair
+king
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+PA to show
+even
+not
+from
+always
+king
+great
+and
+to bear rule, to bear sway, AF to set in authority
+word, saying, thing, affair
+as, almost, about
+this
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+to
+whole
+sorcerer
+and
+enchanter, charmer
+and
+Chaldean
+and
+word, saying, thing, affair
+(relative)
+king
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+to be heavy, ETHPE to be burdened, PA to honour, treat with reverence, worship, ETHPA to be honoured, to be accounted precious, APH to make heavy or dull, to give honour, make valuable, appraise, ETTAPH to be burdened
+she
+and
+man, human, mortal
+not
+there is
+(relative)
+PA to show
+her
+before
+king
+if, O!
+not
+if, O!
+god
+(relative)
+not
+there is
+dwelling, abode
+them
+with
+son
+flesh, body
+then
+king
+to burn with anger, PA to enrage, ETHPA to rage, be furious, to provoke, APH to provoke, anger, vex
+greatly, excessively, magnificently
+and
+in
+Use R&WG(WZ/
+much, many, great
+to say
+to
+to perish, to come to naught. AF to destroy
+to
+whole
+them
+wise, sensible
+(relative)
+Babel
+and
+visitation, command
+to go out, to issue, to proceed forth
+and
+wise, sensible
+to kill, PA to kill many
+and
+to seek
+(relative)
+to kill, PA to kill many
+to
+Daniel
+and
+to
+companion, comrade
+him
+then
+Daniel
+to feed, to rule, to be contented, ETHPE to feed, to think, PA to please, to appease, to heal
+and
+to counsel, to promise, to reign
+and
+to say
+to
+Arioch
+great
+guard, attendant (only plural)
+(relative)
+king
+he
+(relative)
+to go out, to issue, to proceed forth
+to
+to kill, PA to kill many
+to
+wise, sensible
+(relative)
+Babel
+upon, because
+what, why, wherefore
+this
+visitation, command
+to be impudent, PA to act impudent, ETHPA to bear oneself impudently, APH to be bold, persistent
+from
+before
+king
+and
+to uncover, PA to reveal, to lead or go into captivity
+her
+word, saying, thing, affair
+Arioch
+to
+Daniel
+and
+Daniel
+to seek
+from
+king
+(relative)
+time, age, era
+only ipf to give, to make to be, to put
+to
+him
+and
+interpretation
+to
+king
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+then
+Daniel
+to
+house
+him
+to go, to walk
+and
+to
+Hananiah
+and
+to
+Mishael
+and
+to
+Azariah, Adaiah
+companion, comrade
+him
+word, saying, thing, affair
+this
+to uncover, PA to reveal, to lead or go into captivity
+(relative)
+to seek
+womb, tenderness, compassion
+from
+before
+god
+(relative)
+heaven, ceiling, roof, eaves
+upon, because
+secret, council, mystery, magic rites
+this
+(relative)
+not
+to perish, to come to naught. AF to destroy
+Daniel
+and
+companion, comrade
+him
+with
+remnant, rest
+(relative)
+wise, sensible
+(relative)
+Babel
+then
+to
+Daniel
+in
+appearance, likeness, vision
+(relative)
+night
+secret, council, mystery, magic rites
+to uncover, PA to reveal, to lead or go into captivity
+and
+Daniel
+to kneel, to bow down, PA to bless
+to
+god
+(relative)
+heaven, ceiling, roof, eaves
+to answer
+Daniel
+and
+to say
+to be
+name, appellation, title
+him
+(relative)
+THE LORD
+to kneel, to bow down, PA to bless
+from
+age, era, eternity
+and
+until, as far as, unto, so that
+to
+age, era, eternity
+(relative)
+wisdom
+and
+manliness, fortitude, heroism
+[possessive]
+him
+him
+and
+he
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+time, age, era
+and
+a moment, minute
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+king
+and
+to arise APH raise up, place
+king
+to give
+wisdom
+to
+wise, sensible
+and
+mind, intellect, understanding
+to
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+intelligence, understanding, thought
+and
+he
+to uncover, PA to reveal, to lead or go into captivity
+PE ptcpss only deep, profound, hidden, extreme, PA to go deep, AF to penetrate deeply, to hide far in
+and
+to cover, PA to cover, to hide, to conceal, ETHPA to be covered, clothed
+and
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+what
+(relative)
+in
+dark, dim, shady
+and
+shining
+with
+him
+he
+to
+you
+god
+(relative)
+father
+me
+ETHPA to be strengthened, to prophesy, Af to confess, to acknowledge ESHTA promise
+I
+and
+to be glorious
+I
+(relative)
+wisdom
+and
+manliness, fortitude, heroism
+to give
+to
+me
+and
+this hour
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+me
+(relative)
+to seek
+from
+you
+and
+word, saying, thing, affair
+king
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+me
+and
+in
+her
+in
+hour, moment, time, season
+to enter, AF to bring in, to carry in
+Daniel
+at, with, towards, for
+Arioch
+that
+(relative)
+to visit, to command, to entreat, PA to give commission
+to
+him
+king
+to
+to kill, PA to kill many
+to
+wise, sensible
+(relative)
+Babel
+and
+to go, to walk
+and
+thus, so, such
+to say
+to
+him
+to
+wise, sensible
+(relative)
+Babel
+not
+to perish, to come to naught. AF to destroy
+if, O!
+not
+to enter, AF to bring in, to carry in
+me
+before
+king
+and
+interpretation
+to
+king
+PA to show
+then
+Arioch
+earnestly
+to enter, AF to bring in, to carry in
+him
+to
+Daniel
+before
+king
+and
+to say
+to
+him
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+man
+from
+son
+captives, captivity, devastation
+(relative)
+Judah
+(relative)
+interpretation
+to
+king
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+to answer
+king
+and
+to say
+to
+Daniel
+(relative)
+name, appellation, title
+him
+Baltasar
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+you
+to
+PA to show
+me
+dream
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+and
+interpretation
+him
+to answer
+Daniel
+and
+to say
+before
+king
+secret, council, mystery, magic rites
+(relative)
+king
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+not
+wise, sensible
+and
+not
+magian
+and
+not
+sorcerer
+and
+not
+enchanter, charmer
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+PA to show
+to
+king
+if, O!
+not
+there is
+god
+in
+heaven, ceiling, roof, eaves
+to uncover, PA to reveal, to lead or go into captivity
+secret, council, mystery, magic rites
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+to
+king
+Nebuchadnezzar
+what
+(relative)
+to be
+in
+day
+latter, last
+dream
+you
+and
+appearance, likeness, vision
+(relative)
+head, top, summit
+you
+(relative)
+upon, because
+couch, bedroom
+you
+this
+he
+you
+king
+thought, idea, device, consideration
+you
+upon, because
+heart
+you
+to go up,to ascend
+upon, because
+what
+(relative)
+to be
+in
+latter, last
+and
+to uncover, PA to reveal, to lead or go into captivity
+secret, council, mystery, magic rites
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+you
+what
+(relative)
+to be
+and
+I
+not
+to be
+because of
+(relative)
+there is
+in
+me
+wisdom
+greater, overmuch, superfluous
+from
+whole
+them
+alive
+to uncover, PA to reveal, to lead or go into captivity
+to
+me
+secret, council, mystery, magic rites
+this
+if, O!
+not
+because of
+(relative)
+interpretation
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+to
+king
+and
+something, aught
+(relative)
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+in
+heart
+you
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+you
+king
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+and
+behold
+image, figure, form
+one
+great
+(relative)
+good, exceedingly, very
+shining, brightness
+him
+greater, overmuch, superfluous
+and
+to arise APH raise up, place
+opposite, against, before, towards
+you
+appearance, likeness, vision
+him
+fear
+head, top, summit
+him
+(relative)
+gold
+good, exceedingly, very
+breast
+him
+and
+arm, shoulder, sleeve
+him
+(relative)
+silver
+belly, womb, cavity
+him
+and
+thigh
+him
+(relative)
+brass
+shin-bone
+him
+(relative)
+iron
+foot, hoof
+him
+from
+them
+(relative)
+iron
+and
+from
+them
+(relative)
+earthen vessel
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+to determine, to decree, to circumcise
+stone
+(relative)
+not
+in
+hand, side
+and
+to strike, to beat, to wound
+him
+to
+image, figure, form
+upon, because
+foot, hoof
+him
+(relative)
+iron
+and
+(relative)
+earthen vessel
+and
+to beat, to break in pieces, to pulverize, PA to grind to powder, AF to beat very small, PAL to pound, to hammer
+they, them
+good, exceedingly, very
+and
+to beat, to break in pieces, to pulverize, PA to grind to powder, AF to beat very small, PAL to pound, to hammer
+as, almost, about
+one
+iron
+and
+brass
+and
+earthen vessel
+and
+silver
+and
+gold
+and
+to be
+as, almost, about
+barley, chaff, leftovers from harvest
+(relative)
+from
+threshing floor
+(relative)
+summer
+and
+to take, to receive
+they, them
+breath, wind, spirit
+strong
+and
+place, region
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+them
+and
+stone
+(relative)
+to descend, PA to bring down, AF to cause to come down
+him
+to
+image, figure, form
+to be
+to
+mountain
+great
+and
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+from
+her
+whole
+her
+earth, land
+this
+he
+dream
+and
+interpretation
+him
+to say
+before
+king
+you
+king
+king
+king
+god
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+reign, kingdom, majesty
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+and
+honour, glory
+to give
+to
+you
+and
+whole
+place, region
+(relative)
+to dwell, to stay, to inhabit
+in
+him
+son
+man, human, mortal
+and
+bird
+(relative)
+heaven, ceiling, roof, eaves
+and
+life, vitality, living creature
+(relative)
+field, land, country
+to give
+in
+hand, side
+you
+and
+to bear rule, to bear sway, AF to set in authority
+you
+upon, because
+whole
+them
+you
+he
+head, top, summit
+(relative)
+gold
+and
+after, following
+you
+to arise APH raise up, place
+reign, kingdom, majesty
+other
+(relative)
+low, sunken, humble
+from
+you
+and
+reign, kingdom, majesty
+other
+(relative)
+three
+(relative)
+there is
+her
+brass
+to bear rule, to bear sway, AF to set in authority
+in
+whole
+her
+earth, land
+and
+reign, kingdom, majesty
+fourth
+to be
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+as, almost, about
+iron
+and
+as, almost, about
+(relative)
+iron
+hammer
+and
+to beat, to break in pieces, to pulverize, PA to grind to powder, AF to beat very small, PAL to pound, to hammer
+whole
+thus, so, such
+even
+she
+to break up small
+and
+to break up, to subjugate, to subdue
+whole
+and
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+foot, hoof
+and
+finger, toe, digit
+(relative)
+from
+them
+(relative)
+earthen vessel
+(relative)
+potter
+and
+from
+them
+(relative)
+iron
+reign, kingdom, majesty
+to be
+to divide, to have a portion, PA to divide into many parts
+and
+from
+root, plant, shoot, origin, medicinal herb
+(relative)
+iron
+to be
+in
+her
+as, almost, about
+this
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+iron
+(relative)
+to mix, to mingle, ETHPE to join, to take part with, PA to mix thoroughly, ETHPA to be admitted, to have part with, to make alliance
+in
+earthen vessel
+(relative)
+mud, mire, clay, dirt
+and
+finger, toe, digit
+(relative)
+foot, hoof
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+from
+them
+(relative)
+iron
+and
+from
+them
+(relative)
+earthen vessel
+from
+her
+from
+reign, kingdom, majesty
+to be
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+and
+from
+her
+to be
+to break, to rend, PA to break, to shatter
+and
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+iron
+(relative)
+to mix, to mingle, ETHPE to join, to take part with, PA to mix thoroughly, ETHPA to be admitted, to have part with, to make alliance
+in
+earthen vessel
+(relative)
+mud, mire, clay, dirt
+thus, so, such
+to mix, to mingle, ETHPE to join, to take part with, PA to mix thoroughly, ETHPA to be admitted, to have part with, to make alliance
+in
+seed, offspring
+man, human, mortal
+and
+not
+to be
+to cleave, to adhere, to touch, ETHPE to cleave unto, to adhere, PA to put, to join together, to stick
+one
+to
+one
+as, almost, about
+iron
+(relative)
+not
+to mix, to mingle, ETHPE to join, to take part with, PA to mix thoroughly, ETHPA to be admitted, to have part with, to make alliance
+with
+mud, mire, clay, dirt
+and
+in
+day
+them
+(relative)
+king
+those
+to arise APH raise up, place
+god
+heaven, ceiling, roof, eaves
+reign, kingdom, majesty
+(relative)
+to
+age, era, eternity
+not
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+and
+reign, kingdom, majesty
+to
+people
+other, next
+not
+to leave, to leave behind, to dismiss, to remit
+if, O!
+not
+to beat, to break in pieces, to pulverize, PA to grind to powder, AF to beat very small, PAL to pound, to hammer
+and
+to come to an end, perish
+whole
+them
+reign, kingdom, majesty
+these
+and
+she
+to arise APH raise up, place
+to
+age, era, eternity
+as, almost, about
+this
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+from
+mountain
+to determine, to decree, to circumcise
+stone
+(relative)
+not
+in
+hand, side
+and
+to beat, to break in pieces, to pulverize, PA to grind to powder, AF to beat very small, PAL to pound, to hammer
+iron
+and
+brass
+and
+earthen vessel
+and
+silver
+and
+gold
+god
+great
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+you
+what
+(relative)
+to be
+in
+day
+latter, last
+true
+dream
+and
+to believe
+interpretation
+him
+then
+Nebuchadnezzar
+king
+fall
+upon, because
+nostril, countenance
+him
+to
+Daniel
+to bow, to do obeisance
+and
+sweet spices, ointment, incense
+and
+offering
+to say
+to
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+him
+to answer
+king
+and
+to say
+to
+Daniel
+in
+truth, right, justice
+god
+you
+he
+he
+god
+god
+and
+lord
+king
+and
+to uncover, PA to reveal, to lead or go into captivity
+secret, council, mystery, magic rites
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+to uncover, PA to reveal, to lead or go into captivity
+secret, mystery
+this
+then
+king
+to be great, to become great
+to
+Daniel
+and
+gift, present, favour
+much, many, great
+to give
+to
+him
+and
+to bear rule, to bear sway, AF to set in authority
+him
+upon, because
+whole
+her
+earth, land
+(relative)
+Babel
+and
+to arise APH raise up, place
+him
+head, top, summit
+upon, because
+whole
+them
+great
+might, strength, force
+and
+upon, because
+whole
+them
+wise, sensible
+(relative)
+Babel
+and
+Daniel
+to seek
+from
+king
+and
+to bear rule, to bear sway, AF to set in authority
+upon, because
+work
+(relative)
+city, town, province
+Babel
+to
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+you
+Meshach
+and
+Abednego
+and
+Daniel
+to be
+in
+gate, door, entrance
+(relative)
+king
+Nebuchadnezzar
+king
+to do, to make, to work
+image, figure, form
+one
+(relative)
+gold
+height, breadth, size
+him
+forearm, cubit
+six
+and
+breadth, latitude
+him
+forearm, cubit
+six
+and
+to arise APH raise up, place
+him
+in
+plain, broad valley, level tract, expanse
+Dura
+in
+earth, land
+(relative)
+Babel
+and
+Nebuchadnezzar
+king
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+to
+to gather together, to collect, PA to assemble, to call together
+to
+great
+might, strength, force
+and
+to
+dominion
+and
+to
+ruler
+and
+to
+<of an administrative official>
+and
+to
+Garbadite
+and
+to
+Tarbadite
+and
+to
+magistrate
+and
+to
+whole
+power, authority, right, rule, government, ruler, commander
+city, town, province
+to
+to come
+to
+day of assembly, festival, feast
+(relative)
+image, figure, form
+new, recent, fresh
+(relative)
+to arise APH raise up, place
+Nebuchadnezzar
+king
+then
+to gather together, to collect, PA to assemble, to call together
+whole
+them
+great
+might, strength, force
+and
+dominion
+and
+ruler
+and
+<of an administrative official>
+and
+Garbadite
+and
+Tarbadite
+and
+magistrate
+and
+whole
+power, authority, right, rule, government, ruler, commander
+city, town, province
+and
+to come
+to
+day of assembly, festival, feast
+(relative)
+image, figure, form
+new, recent, fresh
+(relative)
+to arise APH raise up, place
+Nebuchadnezzar
+king
+and
+to arise APH raise up, place
+to be
+opposite, against, before, towards
+image, figure, form
+(relative)
+to arise APH raise up, place
+Nebuchadnezzar
+king
+and
+a herald, public crier
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+in
+might, strength, force
+and
+to say
+to
+you
+to say
+people
+and
+race, nation, people, class, genus
+and
+tongue, speech, language
+in
+hour, moment, time, season
+(relative)
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+you
+voice, sound
+horn
+and
+piping
+and
+harp
+and
+harp, cithern
+and
+bagpipe
+and
+whole
+sort, kind, way, method, manner
+music
+fall
+and
+to bow, to do obeisance
+to
+image, figure, form
+(relative)
+gold
+(relative)
+to arise APH raise up, place
+Nebuchadnezzar
+king
+and
+who, which, what
+(relative)
+not
+fall
+and
+to bow, to do obeisance
+in
+him
+in
+hour, moment, time, season
+to hurl, to shoot, ETHPE to be shot, discharged, to be rejected, expelled, PA to hurl, to cast off, ETHPA to be cast out, APH to cast out
+in
+the inside, inward parts
+oven, furnace
+(relative)
+fire
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+and
+in
+hour, moment, time, season
+(relative)
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+to be
+people
+voice, sound
+horn
+and
+piping
+and
+harp
+and
+harp, cithern
+and
+bagpipe
+and
+whole
+sort, kind, way, method, manner
+music
+fall
+to be
+whole
+them
+people
+and
+race, nation, people, class, genus
+and
+tongue, speech, language
+and
+to bow, to do obeisance
+to
+image, figure, form
+(relative)
+gold
+(relative)
+to arise APH raise up, place
+Nebuchadnezzar
+king
+and
+in
+her
+in
+hour, moment, time, season
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+man
+Chaldean
+and
+to eat, to consume
+gnawed or broken morsel, slander
+them
+(relative)
+Judaean
+and
+to say
+to
+Nebuchadnezzar
+king
+king
+to
+age, era, eternity
+to live, to be alive, AF to keep alive
+you
+king
+to visit, to command, to entreat, PA to give commission
+(relative)
+whole
+man, human, mortal
+(relative)
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+voice, sound
+horn
+and
+piping
+and
+harp
+and
+harp, cithern
+and
+bagpipe
+and
+whole
+sort, kind, way, method, manner
+music
+fall
+and
+to bow, to do obeisance
+to
+image, figure, form
+(relative)
+gold
+(relative)
+to arise APH raise up, place
+and
+who, which, what
+(relative)
+not
+fall
+and
+to bow, to do obeisance
+to hurl, to shoot, ETHPE to be shot, discharged, to be rejected, expelled, PA to hurl, to cast off, ETHPA to be cast out, APH to cast out
+in
+the inside, inward parts
+oven, furnace
+(relative)
+fire
+conflagration
+there is
+here
+man
+Judaean
+(relative)
+to arise APH raise up, place
+they, them
+upon, because
+matter, possession
+(relative)
+city, town, province
+Babel
+Shadrach
+Meshach
+and
+Abednego
+man
+those
+not
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+you
+king
+and
+to
+god
+you
+not
+to labour, to cultivate, to worship
+and
+to
+image, figure, form
+(relative)
+gold
+(relative)
+to arise APH raise up, place
+not
+to bow, to do obeisance
+then
+Nebuchadnezzar
+king
+in
+rage
+and
+in
+rage, fury
+to say
+to
+to come
+to
+Shadrach
+Meshach
+and
+Abednego
+and
+to come
+they, them
+before
+king
+to answer
+Nebuchadnezzar
+king
+and
+to say
+to
+them
+in
+truth, right, justice
+Shadrach
+Meshach
+and
+Abednego
+to
+god
+me
+not
+to labour, to cultivate, to worship
+you
+and
+to
+image, figure, form
+(relative)
+gold
+(relative)
+to arise APH raise up, place
+not
+to bow, to do obeisance
+you
+this hour
+if, O!
+PE only ptc pss ready, prepared, future, PA to make ready, to bring to pass
+you
+(relative)
+in
+hour, moment, time, season
+(relative)
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+voice, sound
+horn
+and
+piping
+and
+harp
+and
+harp, cithern
+and
+bagpipe
+and
+whole
+sort, kind, way, method, manner
+music
+fall
+and
+to bow, to do obeisance
+to
+image, figure, form
+(relative)
+to do, to make, to work
+and
+if, O!
+not
+to bow, to do obeisance
+in
+him
+in
+hour, moment, time, season
+to hurl, to shoot, ETHPE to be shot, discharged, to be rejected, expelled, PA to hurl, to cast off, ETHPA to be cast out, APH to cast out
+to
+the inside, inward parts
+oven, furnace
+(relative)
+fire
+conflagration
+and
+who, which, what
+he
+god
+you
+(relative)
+PA to deliver, to set free, pss.ptc. guiltless
+you
+from
+hand, side
+me
+to answer
+Shadrach
+Meshach
+and
+Abednego
+and
+to say
+to
+Nebuchadnezzar
+king
+not
+to be fit, suitable, ETHPA to be used to, familiar with
+we
+upon, because
+this
+word, saying, thing, affair
+word, saying, matter, thing
+to
+to return, to flow back, to repent
+you
+because of
+(relative)
+there is
+him
+god
+us
+(relative)
+we
+to labour, to cultivate, to worship
+to
+him
+(relative)
+he
+to be able, to be allowed, ETHPE to be able, to dare, to oppose
+in
+might, strength, force
+to
+PA to deliver, to set free, pss.ptc. guiltless
+us
+from
+oven, furnace
+(relative)
+fire
+conflagration
+and
+from
+hand, side
+you
+king
+to deliver, preserve, redeem, ranson
+us
+to be
+then
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+king
+(relative)
+to
+god
+you
+not
+to labour, to cultivate, to worship
+we
+and
+to
+image, figure, form
+(relative)
+gold
+(relative)
+to arise APH raise up, place
+not
+to bow, to do obeisance
+we
+then
+Nebuchadnezzar
+king
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+rage, fury
+and
+shining, brightness
+(relative)
+nostril, countenance
+him
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+upon, because
+Shadrach
+Meshach
+and
+Abednego
+and
+to say
+to
+to kindle, heat, ETHPE to be kindled, heated, to glow, PA to let down a line into the sea, APH to remove, quit
+oven, furnace
+one
+in
+seven
+upon, because
+what
+(relative)
+to kindle, heat, ETHPE to be kindled, heated, to glow, PA to let down a line into the sea, APH to remove, quit
+to be
+and
+to
+man
+(relative)
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+in
+might, strength, force
+to say
+(relative)
+bind, PA bind closely
+they, them
+to
+Shadrach
+Meshach
+and
+Abednego
+and
+to
+throw down
+they, them
+in
+the inside, inward parts
+oven, furnace
+(relative)
+fire
+conflagration
+then
+man
+those
+bind, PA bind closely
+they, them
+in
+trousers
+them
+and
+in
+legging
+them
+and
+in
+long outer garment
+them
+and
+in
+cap
+them
+and
+throw down
+they, them
+in
+the inside, inward parts
+oven, furnace
+(relative)
+fire
+conflagration
+because of
+(relative)
+word, saying, thing, affair
+king
+PE (ptc. pass. only), to hasten, ETHPE to be disquieted, to be afraid, AF to trouble, disquiet, to hasten, ESTAPH to make haste, to hasten, SAPH to hasten, impel, urge on, ESTAPH to make haste, hasten
+and
+oven, furnace
+to kindle, heat, ETHPE to be kindled, heated, to glow, PA to let down a line into the sea, APH to remove, quit
+to be
+increasingly
+and
+man
+those
+(relative)
+to eat, to consume
+gnawed or broken morsel, slander
+them
+(relative)
+Shadrach
+Meshach
+and
+Abednego
+to kill, PA to kill many
+they, them
+flame, blaze, flesh of arms, burning fever
+(relative)
+fire
+conflagration
+and
+man
+those
+three
+them
+Shadrach
+Meshach
+and
+Abednego
+fall
+middle, centre
+oven, furnace
+(relative)
+fire
+conflagration
+when, although, because, while
+bind, PA bind closely
+and
+to arise APH raise up, place
+to be
+and
+PA to go, to walk
+in
+shackle
+them
+middle, centre
+flame, blaze, flesh of arms, burning fever
+(relative)
+fire
+and
+to be glorious
+to be
+to
+god
+and
+to kneel, to bow down, PA to bless
+to be
+to
+THE LORD
+then
+Nebuchadnezzar
+king
+be sorry; ETHP regret; PA soften, move to regret; APH sadden
+and
+to arise APH raise up, place
+in
+fear, dread, awe, worship, idol
+great
+and
+to answer
+and
+to say
+to
+chief
+him
+not
+man
+three
+throw down
+in
+the inside, inward parts
+oven, furnace
+(relative)
+fire
+conflagration
+when, although, because, while
+bind, PA bind closely
+to answer
+and
+to say
+to
+king
+yes, if, whether, but
+in
+truth, right, justice
+king
+and
+to arise APH raise up, place
+Azariah, Adaiah
+and
+to open, to unlock, to admit
+mouth
+him
+to
+to kneel, to bow down, PA to bless
+middle, centre
+fire
+and
+to open, to unlock, to admit
+mouth
+him
+and
+to incline, to be prone to, PA to pray, AF to reach out
+and
+to say
+thus, so, such
+to answer
+king
+and
+to say
+behold
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+I
+man
+when, although, because, while
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+and
+PA to go, to walk
+in
+the inside, inward parts
+fire
+and
+damage
+not
+there is
+in
+them
+and
+appearance, likeness, vision
+him
+(relative)
+fourth
+to be like, ETHPE to be or become like, to imitate, PA to liken, to compare, to imitate, ETHPA to be or become like, to be compared
+to
+male offspring
+god
+to kneel, to bow down, PA to bless
+you
+THE LORD
+god
+(relative)
+father
+us
+and
+raise
+and
+to be glorious
+name, appellation, title
+you
+to
+age, era, eternity
+then
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+Nebuchadnezzar
+king
+to
+gate, door, entrance
+(relative)
+oven, furnace
+(relative)
+fire
+conflagration
+and
+to answer
+and
+to say
+Shadrach
+Meshach
+and
+Abednego
+servant
+him
+(relative)
+god
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+to go out, to issue, to proceed forth
+to come
+then
+to go out, to issue, to proceed forth
+Shadrach
+Meshach
+and
+Abednego
+from
+the inside, inward parts
+oven, furnace
+(relative)
+fire
+because of
+(relative)
+upright, righteous
+you
+in
+whole
+what
+(relative)
+to do, to make, to work
+to
+us
+and
+whole
+them
+work
+you
+in
+truth, right, justice
+and
+to direct, make straight, to correct, PA to do rightly, to direct, to rebuild, ETHPA to stand erect, to be directed, APH to correct
+way, road, custom
+you
+and
+whole
+them
+judgement, law, custom
+you
+to believe
+and
+to gather together, to collect, PA to assemble, to call together
+people
+whole
+them
+and
+great
+might, strength, force
+and
+ruler
+and
+dominion
+and
+chief
+(relative)
+king
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+to
+man
+those
+(relative)
+not
+to bear rule, to bear sway, AF to set in authority
+fire
+in
+flesh, body
+them
+and
+hair
+(relative)
+head, top, summit
+them
+not
+burn
+and
+trousers
+them
+not
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+and
+scent, savour, odour, pl. perfumes, spices
+(relative)
+fire
+not
+to touch
+in
+them
+because of
+(relative)
+in
+judgement, law, custom
+he
+(relative)
+truth, right, justice
+to do, to make, to work
+to
+us
+in
+whole
+what
+(relative)
+to come
+upon, because
+us
+and
+upon, because
+city, town, province
+pure, holy
+(relative)
+father
+us
+upon, because
+Jerusalem
+because of
+(relative)
+in
+righteousness
+to come
+upon, because
+us
+whole
+them
+these
+because of
+debt
+us
+to answer
+Nebuchadnezzar
+king
+and
+to say
+to kneel, to bow down, PA to bless
+he
+god
+them
+(relative)
+Shadrach
+Meshach
+and
+Abednego
+(relative)
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+messenger, angel
+him
+and
+PA to deliver, to set free, pss.ptc. guiltless
+to
+servant
+him
+(relative)
+PE ptc only to trust, to put confidence in, ETHPE to trust, to rely upon
+upon, because
+him
+and
+word, saying, thing, affair
+king
+to despise, to reject
+and
+to give
+body
+them
+(relative)
+not
+to labour, to cultivate, to worship
+and
+not
+to bow, to do obeisance
+to
+whole
+god
+if, O!
+not
+if, O!
+to
+god
+them
+(relative)
+to miss, to sin, PA to be arrogant, AF to cause to sin
+and
+APH to speak or act impiously, to do wickedness, SHAPH to conceal wickedness
+before
+you
+and
+ptc.pss remote, distant (de=RXJQ), PA to put far away, ETHPA to journey afar, to avoid, APH to depart afar, ETTAPH to be removed far
+from
+you
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+upon, because
+speech, diction, discourse
+you
+and
+to miss, to sin, PA to be arrogant, AF to cause to sin
+to
+you
+in
+whole
+and
+thus, so, such
+to visit, to command, to entreat, PA to give commission
+I
+(relative)
+whole
+people
+and
+race, nation, people, class, genus
+and
+tongue, speech, language
+(relative)
+PA to revile, to blaspheme
+upon, because
+god
+them
+(relative)
+Shadrach
+Meshach
+and
+Abednego
+limb, member
+limb, member
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+and
+house
+them
+to spoil, to plunder
+because of
+(relative)
+not
+there is
+god
+other, next
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+to deliver, preserve, redeem, ranson
+thus, so, such
+and
+to
+visitation, command
+you
+not
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+and
+not
+to guard, AF to put in a safe place
+and
+not
+to do, to make, to work
+as, almost, about
+something, aught
+(relative)
+to visit, to command, to entreat, PA to give commission
+us
+(relative)
+to be good, AF to do good
+to
+us
+then
+to be great, to become great
+king
+to
+Shadrach
+Meshach
+and
+Abednego
+upon, because
+place, region
+(relative)
+Babel
+and
+whole
+something, aught
+(relative)
+to come
+upon, because
+us
+and
+whole
+something, aught
+(relative)
+to do, to make, to work
+to
+us
+in
+judgement, law, custom
+he
+upright, just
+to do, to make, to work
+to
+us
+Nebuchadnezzar
+king
+to write, ETHPE to be written, APH to write
+to
+whole
+people
+and
+race, nation, people, class, genus
+and
+tongue, speech, language
+(relative)
+to dwell, to stay, to inhabit
+in
+whole
+her
+earth, land
+peace
+to increase, AF to make more, increase, add
+to
+you
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+us
+in
+hand, side
+(relative)
+adversary
+us
+wicked
+(relative)
+ptc.pss remote, distant (de=RXJQ), PA to put far away, ETHPA to journey afar, to avoid, APH to depart afar, ETTAPH to be removed far
+from
+you
+and
+to
+dominion
+(relative)
+reign, kingdom, majesty
+lawless, wicked, impious
+(relative)
+evil
+from
+whole
+them
+reign, kingdom, majesty
+(relative)
+earth, land
+sign, token
+and
+marvel, wonder
+(relative)
+to do, to make, to work
+god
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+to be fair, to be merry, to please, ETHPE to be pleased, ETHPA to be pleasing, to find favour, APH to do well, to make fair
+before
+me
+to
+PA to show
+and
+this hour
+THE LORD
+not
+there is
+to
+us
+to open, to unlock, to admit
+mouth
+before
+you
+because of
+shame, disgrace
+and
+shameful thing, shame, reproach
+(relative)
+to be
+to
+servant
+you
+and
+to
+fear, dread, awe, worship, idol
+you
+sign, token
+him
+how much, how many
+great, grown up, nobles, chiefs
+and
+marvel, wonder
+him
+how much, how many
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+reign, kingdom, majesty
+him
+reign, kingdom, majesty
+age, era, eternity
+and
+power, authority, right, rule, government, ruler, commander
+him
+to
+generation
+generation
+not
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+us
+until, as far as, unto, so that
+to
+latter end, extremity
+because of
+name, appellation, title
+you
+and
+not
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+covenant
+[possessive]
+you
+and
+not
+ptc.pss remote, distant (de=RXJQ), PA to put far away, ETHPA to journey afar, to avoid, APH to depart afar, ETTAPH to be removed far
+womb, tenderness, compassion
+you
+and
+goodness, favour, kindness
+you
+from
+us
+because of
+Abraham
+to love, to desire, PA to have mercy upon
+you
+and
+because of
+Isaac
+servant
+you
+and
+because of
+Israel
+pure, holy
+you
+(relative)
+to counsel, to promise, to reign
+to
+them
+(relative)
+to increase, AF to make more, increase, add
+seed, offspring
+them
+as, almost, about
+star, planet
+(relative)
+in
+heaven, ceiling, roof, eaves
+and
+as, almost, about
+sand, gravel
+(relative)
+upon, because
+lip, brim, edge
+him
+(relative)
+sea, lake
+because of
+(relative)
+this hour
+THE LORD
+to lie down flat, PA to humiliate
+from
+whole
+them
+people
+and
+we
+to scatter, PA to scatter abroad, disperse, ETHPA to be scattered abroad, dispersed
+we
+today
+in
+whole
+her
+earth, land
+because of
+debt
+us
+and
+sin, fault
+us
+and
+not
+there is
+in
+time, age, era
+this
+not
+head, top, summit
+and
+not
+ruling
+and
+not
+prophet
+and
+not
+leader, ruler, judge
+and
+not
+altar
+and
+not
+sacrifice, victim
+and
+not
+offering
+and
+not
+place
+(relative)
+to go up,to ascend
+sweet spices, ointment, incense
+or, either
+sacrifice, offering
+and
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+pity, mercy, compassion
+and
+womb, tenderness, compassion
+if, O!
+not
+in
+heart
+to break up small
+and
+in
+breath, wind, spirit
+to lie down flat, PA to humiliate
+behold
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+burning, conflagration
+(relative)
+fire
+when, although, because, while
+to seek
+we
+(relative)
+greater, overmuch, superfluous
+from
+bull, ox
+and
+male, masculine, a ram, chem. arsenic
+and
+lamb
+to be or grow fat, to ripen, ETHPE to grow fat, PA to fatten
+much, many, great
+thus, so, such
+to be
+offering
+(relative)
+breath, animal soul
+us
+today
+and
+not
+to be ashamed, to stand in awe
+servant
+you
+because of
+(relative)
+not
+to be ashamed, to stand in awe
+who, which, what
+(relative)
+PE ptc only to trust, to put confidence in, ETHPE to trust, to rely upon
+upon, because
+you
+even
+this hour
+we
+to come
+after, following
+you
+in
+heart
+whole, entire, complete
+and
+fear
+from
+you
+and
+nostril, countenance
+you
+to seek
+we
+THE LORD
+not
+to be ashamed, to stand in awe
+us
+if, O!
+not
+to do, to make, to work
+with
+us
+as, almost, about
+multitude, great part
+(relative)
+goodness, favour, kindness
+you
+and
+(relative)
+womb, tenderness, compassion
+you
+much, many, great
+and
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+us
+as, almost, about
+multitude, great part
+(relative)
+marvel, wonder
+you
+and
+to give
+praise
+to
+name, appellation, title
+you
+THE LORD
+because of
+name, appellation, title
+you
+great
+and
+to be ashamed, to stand in awe
+whole
+them
+who, which, what
+(relative)
+to say
+evil
+upon, because
+servant
+you
+and
+to be ashamed, to stand in awe
+in
+whole
+him
+manliness, fortitude, heroism
+them
+and
+might, strength, force
+them
+to leave, to leave behind, to dismiss, to remit
+and
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+you
+he
+one
+god
+in
+only, alone, sole
+you
+and
+to be glorious
+you
+in
+whole
+them
+work
+you
+and
+not
+to cease, to desist, to be silent, to dwell in peace, ETHPA to cease, to be stilled, APH to come to quiet
+to be
+those
+(relative)
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+to be
+oven, furnace
+(relative)
+fire
+and
+to hurl, to shoot, ETHPE to be shot, discharged, to be rejected, expelled, PA to hurl, to cast off, ETHPA to be cast out, APH to cast out
+to be
+in
+her
+naphtha
+and
+pitch
+and
+sulphur, brimstone
+and
+cane, reed, rope of rushes
+and
+branch
+and
+to give
+voice, sound
+flame, blaze, flesh of arms, burning fever
+(relative)
+fire
+and
+to go up,to ascend
+upwards,above
+from
+oven, furnace
+four
+and
+nine
+forearm, cubit
+and
+to be
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+and
+to perish, to come to naught. AF to destroy
+fire
+to
+whole
+who, which, what
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+circle, surroundings
+him
+(relative)
+oven, furnace
+from
+Chaldean
+and
+to eat, to consume
+gnawed or broken morsel, slander
+messenger, angel
+then
+(relative)
+dew
+to descend, PA to bring down, AF to cause to come down
+with
+Hananiah
+and
+Azariah, Adaiah
+and
+Mishael
+to
+the inside, inward parts
+oven, furnace
+(relative)
+fire
+and
+to thrust out, to take away, to reject
+her
+to
+flame, blaze, flesh of arms, burning fever
+(relative)
+fire
+from
+oven, furnace
+and
+to do, to make, to work
+in
+middle, centre
+him
+(relative)
+oven, furnace
+as, almost, about
+breath, wind, spirit
+(relative)
+dew
+and
+not
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+them
+fire
+even
+not
+swift, light, rapid, small, few
+and
+not
+to be short, to be sad
+to
+them
+and
+not
+to be pressing, to straiten, to hem in ETPHE be straight, narrow, tormented (with illness, hunger, thirst)
+they, them
+then
+three
+them
+from
+one
+mouth
+to be glorious
+to be
+and
+to kneel, to bow down, PA to bless
+to
+god
+from
+the inside, inward parts
+oven, furnace
+(relative)
+fire
+and
+to say
+to kneel, to bow down, PA to bless
+you
+THE LORD
+god
+(relative)
+father
+us
+to be glorious
+you
+and
+raise
+you
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+name, appellation, title
+(relative)
+praise
+you
+pure, holy
+to be glorious
+you
+and
+raise
+you
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+you
+in
+palace, temple
+(relative)
+holiness, sanctity, holy things,sanctuary
+you
+to be glorious
+you
+and
+raise
+you
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+you
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+you
+chaos, deep abyss
+and
+to sit, AF, to make dwell, to set, place
+you
+upon, because
+cherub
+to be glorious
+you
+and
+raise
+you
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+you
+upon, because
+chair, throne
+reign, kingdom, majesty
+you
+to be glorious
+you
+and
+raise
+you
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+you
+in
+expanse of heaven, firmament
+(relative)
+heaven, ceiling, roof, eaves
+to be glorious
+you
+and
+raise
+you
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+work
+him
+(relative)
+THE LORD
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+messenger, angel
+him
+(relative)
+THE LORD
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+heaven, ceiling, roof, eaves
+(relative)
+THE LORD
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+water
+(relative)
+to
+upon, because
+from
+heaven, ceiling, roof, eaves
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+fear
+him
+(relative)
+THE LORD
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+strength, power, force
+him
+(relative)
+THE LORD
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+sun
+and
+moon
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+star, planet
+(relative)
+in
+heaven, ceiling, roof, eaves
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+rain
+and
+dew
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+water
+and
+breath, wind, spirit
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+fire
+and
+heat
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+breath, living being, soul
+(relative)
+upright, righteous
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+cold
+and
+heat
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+summer
+and
+winter
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+snow
+and
+ice, crystal
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+night
+and
+the day, the daytime
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+light, brightness
+and
+dark, dim, shady
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+lightning
+and
+cloud, quicksilver
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+earth, land
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+mountain
+and
+high place, hill
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+bloom, herb, flowers
+(relative)
+earth, land
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+(relative)
+shine, sprout
+upon, because
+earth, land
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+spring, source
+and
+whole
+them
+eye
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+sea, lake
+and
+stream, river, canal
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+fish
+and
+whole
+(relative)
+to creep, to move slowly
+in
+water
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+her
+bird
+(relative)
+heaven, ceiling, roof, eaves
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+her
+life, vitality, living creature
+and
+sheep, cattle, beasts
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+(relative)
+to creep, to move slowly
+upon, because
+earth, land
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+son
+man, human, mortal
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+(relative)
+house
+Israel
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+priest
+him
+(relative)
+THE LORD
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+servant
+him
+(relative)
+THE LORD
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+breath, animal soul
+and
+breath, wind, spirit
+(relative)
+upright, righteous
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+perfect
+and
+to lie down flat, PA to humiliate
+heart
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+Hananiah
+and
+Azariah, Adaiah
+and
+Mishael
+to
+THE LORD
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+because of
+(relative)
+SHAPH to deliver, redeem, ESHTAPH to be delivered, escape
+us
+from
+death
+and
+from
+hand, side
+Sheol, the pit, lower regions
+to live, to be alive, AF to keep alive
+us
+and
+PA to deliver, to set free, pss.ptc. guiltless
+us
+from
+flame, blaze, flesh of arms, burning fever
+(relative)
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+and
+from
+middle, centre
+fire
+to go out, to issue, to proceed forth
+us
+ETHPA to be strengthened, to prophesy, Af to confess, to acknowledge ESHTA promise
+to
+THE LORD
+(relative)
+to be sweet, fragrant, PA to make cheerful, to sweeten, perfume, ETHPA to refresh oneself, APH to yield fragrance
+he
+and
+to
+age, era, eternity
+goodness, favour, kindness
+him
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+to kneel, to bow down, PA to bless
+whole
+them
+fear
+him
+(relative)
+god
+to
+god
+(relative)
+god
+to be glorious
+him
+and
+raise
+him
+to
+age, era, eternity
+ETHPA to be strengthened, to prophesy, Af to confess, to acknowledge ESHTA promise
+to
+THE LORD
+(relative)
+good, exceedingly, very
+he
+and
+to
+age, era, eternity
+him
+goodness, favour, kindness
+him
+I
+Nebuchadnezzar
+to cease, to desist, to be silent, to dwell in peace, ETHPA to cease, to be stilled, APH to come to quiet
+to be
+in
+house
+me
+and
+to rest, to stay quiet
+in
+palace, temple
+me
+and
+dream
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+and
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+and
+appearance, likeness, vision
+(relative)
+head, top, summit
+me
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+me
+and
+I
+to visit, to command, to entreat, PA to give commission
+to
+to enter, AF to bring in, to carry in
+before
+me
+to
+whole
+them
+wise, sensible
+(relative)
+Babel
+(relative)
+interpretation
+(relative)
+dream
+PA to show
+me
+and
+to enter, AF to bring in, to carry in
+before
+me
+sorcerer
+and
+enchanter, charmer
+and
+Chaldean
+and
+magian
+and
+to say
+him
+to
+dream
+before
+them
+and
+interpretation
+him
+not
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+me
+until, as far as, unto, so that
+(relative)
+to enter, AF to bring in, to carry in
+before
+me
+Daniel
+this
+(relative)
+name, appellation, title
+him
+Baltasar
+upon, because
+name, appellation, title
+god
+me
+(relative)
+breath, wind, spirit
+god
+pure, holy
+there is
+in
+him
+and
+dream
+before
+him
+to say
+Baltasar
+great
+wise, sensible
+(relative)
+I
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+I
+(relative)
+breath, wind, spirit
+god
+pure, holy
+there is
+in
+you
+and
+whole
+secret, mystery
+not
+to cover, PA to cover, to hide, to conceal, ETHPA to be covered, clothed
+from
+you
+in
+appearance, likeness, vision
+(relative)
+dream
+me
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+I
+appearance, likeness, vision
+(relative)
+head, top, summit
+me
+and
+interpretation
+him
+you
+to say
+to
+me
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+in
+couch, bedroom
+tree, tree trunk
+middle, centre
+earth, land
+height, breadth, size
+him
+much, many, great
+and
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+tree, tree trunk
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+and
+height, breadth, size
+him
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+until, as far as, unto, so that
+to
+heaven, ceiling, roof, eaves
+and
+appearance, likeness, vision
+him
+to
+whole
+the uttermost part, end, edge, border
+her
+(relative)
+earth, land
+leaf
+him
+fair, good, lovely, pleasing
+and
+produce of the earth
+him
+much, many, great
+and
+food, suburbs
+to
+whole
+flesh, body
+there is
+in
+him
+under
+him
+to dwell, to stay, to inhabit
+whole
+them
+life, vitality, living creature
+(relative)
+outside area
+and
+in
+bough, branch, twig
+him
+to alight, settle, rest upon, PA to bestow, confer, ETHPA to be bestowed, granted, APH to make to settle, to place, to pledge
+whole
+him
+fowl
+(relative)
+heaven, ceiling, roof, eaves
+and
+from
+him
+nourish, support, rear
+to be
+whole
+flesh, body
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+in
+appearance, likeness, vision
+(relative)
+head, top, summit
+me
+(relative)
+upon, because
+couch, bedroom
+me
+to wake, to watch, PA to wake, to rouse, AF to wake, to awaken, ETTAPH to awake, to be awakened, aroused, excited, to be attentive, sober, to wake from the dead
+and
+pure, holy
+(relative)
+to descend, PA to bring down, AF to cause to come down
+from
+heaven, ceiling, roof, eaves
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+in
+might, strength, force
+and
+thus, so, such
+to say
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+tree, tree trunk
+and
+to tear, rend, throw down
+bough, branch, twig
+him
+and
+to fall off, to waste away, ETHPA to be fallen away, to be bald, APH to shed, to shake off
+leaf
+him
+and
+to scatter, PA to scatter abroad, disperse, ETHPA to be scattered abroad, dispersed
+produce of the earth
+him
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+life, vitality, living creature
+from
+under
+him
+and
+fowl
+(relative)
+heaven, ceiling, roof, eaves
+from
+bough, branch, twig
+him
+to uproot, to pull out, to break down
+root
+him
+then
+in
+earth, land
+to leave, to leave behind, to dismiss, to remit
+in
+band, chain, handcuffs, imprisonment
+iron
+and
+brass
+in
+sprouting grass, tender grass, spring
+(relative)
+outside area
+and
+from
+dew
+(relative)
+heaven, ceiling, roof, eaves
+to dip, to moisten, to dye
+and
+with
+life, vitality, living creature
+outside area
+dwelling, abode
+him
+in
+green herb, grass
+(relative)
+earth, land
+and
+heart
+him
+from
+son
+man, human, mortal
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+and
+heart
+(relative)
+life, vitality, living creature
+to give
+to
+him
+and
+seven
+a moment, minute
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+upon, because
+him
+in
+visitation, command
+to wake, to watch, PA to wake, to rouse, AF to wake, to awaken, ETTAPH to awake, to be awakened, aroused, excited, to be attentive, sober, to wake from the dead
+word, saying, matter, thing
+and
+in
+speech, diction, discourse
+pure, holy
+request, petition
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+life
+(relative)
+ruling
+he
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+in
+reign, kingdom, majesty
+(relative)
+man, human, mortal
+(relative)
+to
+who, which, what
+(relative)
+to be willing, to wish, to seek to
+only ipf to give, to make to be, to put
+her
+and
+to
+humble
+man, human, mortal
+to arise APH raise up, place
+upon, because
+her
+this
+dream
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+I
+Nebuchadnezzar
+king
+and
+you
+Baltasar
+interpretation
+him
+to say
+to
+me
+because of
+(relative)
+whole
+them
+wise, sensible
+(relative)
+reign, kingdom, majesty
+me
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+me
+and
+you
+Daniel
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+you
+because of
+(relative)
+breath, wind, spirit
+god
+pure, holy
+there is
+in
+you
+then
+Daniel
+(relative)
+name, appellation, title
+him
+Baltasar
+be numb, be torpid, be rigid, be speechless
+as, almost, about
+hour, moment, time, season
+one
+and
+thought, idea, device, consideration
+him
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+him
+to answer
+king
+and
+to say
+Baltasar
+dream
+and
+interpretation
+him
+not
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+you
+to answer
+Daniel
+and
+to say
+lord
+me
+dream
+to
+hater, enemy, adversary
+you
+and
+interpretation
+him
+to
+adversary
+you
+tree, tree trunk
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+to grow, to grow up, PA to bring up, to educate
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+and
+height, breadth, size
+him
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+until, as far as, unto, so that
+to
+heaven, ceiling, roof, eaves
+and
+appearance, likeness, vision
+him
+to
+whole
+the uttermost part, end, edge, border
+her
+(relative)
+earth, land
+leaf
+him
+fair, good, lovely, pleasing
+and
+produce of the earth
+him
+much, many, great
+and
+food, suburbs
+to
+whole
+flesh, body
+there is
+in
+him
+under
+him
+to dwell, to stay, to inhabit
+whole
+them
+life, vitality, living creature
+(relative)
+field, land, country
+and
+in
+bough, branch, twig
+him
+to alight, settle, rest upon, PA to bestow, confer, ETHPA to be bestowed, granted, APH to make to settle, to place, to pledge
+whole
+him
+fowl
+(relative)
+heaven, ceiling, roof, eaves
+and
+from
+him
+nourish, support, rear
+to be
+whole
+flesh, body
+you
+he
+king
+(relative)
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+and
+to be great, to become great
+and
+to grow, to grow up, PA to bring up, to educate
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+to
+heaven, ceiling, roof, eaves
+and
+power, authority, right, rule, government, ruler, commander
+you
+to
+whole
+the uttermost part, end, edge, border
+her
+(relative)
+earth, land
+and
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+king
+to
+to wake, to watch, PA to wake, to rouse, AF to wake, to awaken, ETTAPH to awake, to be awakened, aroused, excited, to be attentive, sober, to wake from the dead
+and
+pure, holy
+(relative)
+to descend, PA to bring down, AF to cause to come down
+from
+heaven, ceiling, roof, eaves
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+in
+might, strength, force
+and
+to say
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+tree, tree trunk
+and
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+him
+to uproot, to pull out, to break down
+root
+him
+then
+in
+earth, land
+to leave, to leave behind, to dismiss, to remit
+in
+band, chain, handcuffs, imprisonment
+iron
+and
+brass
+in
+sprouting grass, tender grass, spring
+(relative)
+outside area
+and
+from
+dew
+(relative)
+heaven, ceiling, roof, eaves
+to dip, to moisten, to dye
+and
+with
+life, vitality, living creature
+Bera
+dwelling, abode
+him
+in
+green herb, grass
+(relative)
+earth, land
+and
+heart
+him
+from
+son
+man, human, mortal
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+and
+heart
+(relative)
+life, vitality, living creature
+to give
+to
+him
+until, as far as, unto, so that
+(relative)
+seven
+a moment, minute
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+upon, because
+him
+this
+he
+interpretation
+king
+decree, sentence, ordinance,partition, split wood
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+upon, because
+lord
+me
+king
+and
+from
+man, human, mortal
+to urge on, banish, chase away, pursue
+to
+you
+and
+with
+life, vitality, living creature
+outside area
+to be
+dwelling, abode
+you
+and
+green herb, grass
+as, almost, about
+bull, ox
+to eat, to consume
+you
+and
+from
+dew
+(relative)
+heaven, ceiling, roof, eaves
+to dip, to moisten, to dye
+and
+seven
+a moment, minute
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+upon, because
+you
+until, as far as, unto, so that
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+ruling
+he
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+in
+reign, kingdom, majesty
+(relative)
+man, human, mortal
+(relative)
+to
+who, which, what
+(relative)
+to be willing, to wish, to seek to
+only ipf to give, to make to be, to put
+her
+and
+to
+to be weary, to faint, PA to humble, bring low, ETHPA to be weary, to give oneself trouble, APH to bring low, humble, overpower, to be wearied out
+man, human, mortal
+to arise APH raise up, place
+upon, because
+her
+and
+(relative)
+to say
+to
+to leave, to leave behind, to dismiss, to remit
+root, plant, shoot, origin, medicinal herb
+root
+him
+(relative)
+tree, tree trunk
+reign, kingdom, majesty
+you
+to
+you
+in being, existing
+what
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+power, authority, right, rule, government, ruler, commander
+from
+heaven, ceiling, roof, eaves
+he
+because of
+this
+counsel
+to be fair, to be merry, to please, ETHPE to be pleased, ETHPA to be pleasing, to find favour, APH to do well, to make fair
+upon, because
+you
+and
+sin, fault
+you
+in
+righteous act, due, allowance
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+and
+iniquity
+you
+in
+mercy
+(relative)
+weak
+until, as far as, unto, so that
+(relative)
+ptc.pss remote, distant (de=RXJQ), PA to put far away, ETHPA to journey afar, to avoid, APH to depart afar, ETTAPH to be removed far
+from
+you
+folly,offence
+you
+these
+whole
+them
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+upon, because
+Nebuchadnezzar
+king
+and
+from
+after, following
+two
+ten
+month
+upon, because
+palace, temple
+reign, kingdom, majesty
+him
+(relative)
+in
+Babel
+PA to go, to walk
+to be
+Nebuchadnezzar
+king
+and
+to answer
+and
+to say
+not
+to be
+this
+Babel
+great
+(relative)
+I
+to build,PA to restore,to edify
+her
+to
+house
+reign, kingdom, majesty
+me
+and
+to
+power, grasp
+me
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+and
+to
+honour, glory
+me
+and
+while, until, unto
+word, saying, thing, affair
+in
+mouth
+him
+(relative)
+king
+voice, sound
+to come
+from
+heaven, ceiling, roof, eaves
+to
+you
+to say
+Nebuchadnezzar
+king
+reign, kingdom, majesty
+you
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+from
+you
+and
+from
+man, human, mortal
+to urge on, banish, chase away, pursue
+to
+you
+and
+with
+life, vitality, living creature
+outside area
+to be
+dwelling, abode
+you
+and
+green herb, grass
+as, almost, about
+bull, ox
+to eat, to consume
+you
+and
+from
+dew
+(relative)
+heaven, ceiling, roof, eaves
+to dip, to moisten, to dye
+and
+seven
+a moment, minute
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+upon, because
+you
+until, as far as, unto, so that
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+ruling
+he
+god
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+in
+reign, kingdom, majesty
+(relative)
+man, human, mortal
+(relative)
+to
+who, which, what
+(relative)
+to be willing, to wish, to seek to
+only ipf to give, to make to be, to put
+her
+and
+to
+to be weary, to faint, PA to humble, bring low, ETHPA to be weary, to give oneself trouble, APH to bring low, humble, overpower, to be wearied out
+man, human, mortal
+to arise APH raise up, place
+upon, because
+her
+in
+her
+in
+hour, moment, time, season
+word, saying, thing, affair
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+upon, because
+Nebuchadnezzar
+king
+and
+from
+son
+man, human, mortal
+to urge on, banish, chase away, pursue
+and
+green herb, grass
+as, almost, about
+bull, ox
+to eat, to consume
+and
+from
+dew
+(relative)
+heaven, ceiling, roof, eaves
+to dip, to moisten, to dye
+until, as far as, unto, so that
+(relative)
+hair
+him
+to grow, to grow up, PA to bring up, to educate
+as, almost, about
+(relative)
+eagle, roof gabled in the centre with lower roofs slanting down to side walls
+and
+fingernail, toenail, hoof, claw, talon
+him
+as, almost, about
+(relative)
+fowl
+and
+when, although, because, while
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+day
+I
+Nebuchadnezzar
+eye
+me
+to
+heaven, ceiling, roof, eaves
+to lift up, to carry, to break up, to march
+and
+mind, intellect, understanding
+me
+to return, to flow back, to repent
+upon, because
+me
+and
+to
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+to kneel, to bow down, PA to bless
+and
+to
+alive
+age, era, eternity
+to be glorious
+and
+ptc.pss adorned, comely, acceptable, PA to adorn, to glorify, ETHPA be glorified, honoured
+(relative)
+power, authority, right, rule, government, ruler, commander
+him
+power, authority, right, rule, government, ruler, commander
+age, era, eternity
+and
+reign, kingdom, majesty
+him
+to
+generation
+generation
+and
+whole
+them
+inhabitant
+her
+(relative)
+earth, land
+as, almost, about
+not
+something, aught
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+before
+him
+and
+whole
+what
+(relative)
+to be willing, to wish, to seek to
+to do, to make, to work
+in
+might, strength, force
+heaven, ceiling, roof, eaves
+and
+in
+inhabitant
+her
+(relative)
+earth, land
+and
+not
+there is
+(relative)
+to blame
+in
+hand, side
+him
+and
+to say
+to
+him
+what, why, wherefore
+to do, to make, to work
+you
+in
+him
+in
+time, age, era
+mind, intellect, understanding
+me
+to turn, to return, to repent, ETHPE to betake oneself, to turn towards, PA to restore, AF to cause to turn
+upon, because
+me
+and
+great, grown up, nobles, chiefs
+me
+and
+great
+might, strength, force
+me
+to seek
+me
+and
+upon, because
+reign, kingdom, majesty
+me
+to be in good order, to be established, PA to construct to fashion, AF to construct, to fix, to furnish
+and
+grandeur, magnitude, magnificence, dignity
+greater, overmuch, superfluous
+AF to add, to increase, to be greater
+to
+me
+thence, thereafter, therefore, so then
+I
+Nebuchadnezzar
+to be glorious
+and
+raise
+and
+ptc.pss adorned, comely, acceptable, PA to adorn, to glorify, ETHPA be glorified, honoured
+to
+king
+(relative)
+heaven, ceiling, roof, eaves
+(relative)
+whole
+them
+work
+him
+in
+truth, right, justice
+and
+way, road, custom
+him
+judgement, law, custom
+and
+to
+who, which, what
+(relative)
+PA to go, to walk
+in
+state, stateliness, magnificence
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+(relative)
+to lie down flat, PA to humiliate
+Baltasar
+king
+to do, to make, to work
+food, bread
+great
+to
+thousand
+great, grown up, nobles, chiefs
+him
+and
+opposite, against, before, towards
+thousand
+must, wine
+to drink, to imbibe
+to be
+and
+to say
+Baltasar
+in
+taste, taking a taste of
+must, wine
+him
+to
+to come
+vessel, utensil, instrument, garment
+(relative)
+gold
+and
+(relative)
+silver
+(relative)
+to go out, to issue, to proceed forth
+Nebuchadnezzar
+father
+him
+from
+palace, temple
+(relative)
+in
+Jerusalem
+(relative)
+to drink, to imbibe
+in
+them
+king
+and
+great, grown up, nobles, chiefs
+him
+and
+women
+him
+and
+concubine, sucker
+him
+then
+to come
+vessel, utensil, instrument, garment
+(relative)
+gold
+(relative)
+to go out, to issue, to proceed forth
+from
+palace, temple
+(relative)
+god
+(relative)
+in
+Jerusalem
+and
+to drink, to imbibe
+in
+them
+king
+and
+great, grown up, nobles, chiefs
+him
+and
+women
+him
+and
+concubine, sucker
+him
+to drink, to imbibe
+must, wine
+and
+to be glorious
+to
+god
+(relative)
+gold
+and
+(relative)
+silver
+and
+(relative)
+brass
+and
+(relative)
+iron
+and
+(relative)
+wood
+and
+(relative)
+stone
+and
+in
+her
+in
+hour, moment, time, season
+to go out, to issue, to proceed forth
+finger, toe, digit
+(relative)
+hand, side
+(relative)
+man, human, mortal
+and
+to write, ETHPE to be written, APH to write
+opposite, against, before, towards
+lamp
+upon, because
+chalk, whitewash
+(relative)
+wall, partition
+(relative)
+in
+palace, temple
+(relative)
+king
+and
+king
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+palm of hand, sole of foot, foot measure
+(relative)
+hand, side
+(relative)
+to write, ETHPE to be written, APH to write
+then
+king
+shining, brightness
+him
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+and
+mind, intellect, conscience, opinion
+him
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+and
+bandage
+loin, back
+him
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+and
+knee, kneeling, genuflection
+him
+one
+to
+one
+to knock, strike, clash, play (a musical instrument), to fix a nail, to clap hands
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+king
+in
+might, strength, force
+to
+to enter, AF to bring in, to carry in
+to
+enchanter, charmer
+and
+to
+Chaldean
+and
+to
+magian
+and
+to
+wise, sensible
+to answer
+king
+and
+to say
+to
+wise, sensible
+(relative)
+Babel
+whole
+man, human, mortal
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+writing, book
+this
+and
+interpretation
+him
+PA to show
+me
+violet, purper
+to clothe oneself, to put on (armour)
+and
+necklace
+(relative)
+gold
+in
+neck, throat
+him
+and
+a third
+in
+reign, kingdom, majesty
+to bear rule, to bear sway, AF to set in authority
+then
+to enter, AF to bring in, to carry in
+to be
+wise, sensible
+(relative)
+king
+and
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to be
+writing, book
+to
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+and
+interpretation
+him
+to
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+to
+king
+then
+king
+Baltasar
+much, many, great
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+and
+shining, brightness
+him
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+and
+great, grown up, nobles, chiefs
+him
+PA to terrify, to hasten, ETHPA to be astonished, dismayed
+to be
+and
+queen
+because of
+word, saying, thing, affair
+king
+and
+great, grown up, nobles, chiefs
+him
+to
+house
+drinking, feast
+to enter, AF to bring in, to carry in
+to answer
+and
+to say
+to
+king
+king
+to
+age, era, eternity
+to live, to be alive, AF to keep alive
+mind, intellect, conscience, opinion
+you
+not
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+you
+and
+shining, brightness
+you
+not
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+there is
+man
+in
+reign, kingdom, majesty
+you
+(relative)
+breath, wind, spirit
+god
+pure, holy
+there is
+in
+him
+and
+in
+day
+father
+you
+illumination
+and
+intelligence, understanding, thought
+and
+wisdom
+much, many, great
+as, almost, about
+wisdom
+god
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+in
+him
+and
+king
+Nebuchadnezzar
+father
+you
+great
+enchantment, witchcraft
+and
+enchanter, charmer
+and
+magian
+and
+Chaldean
+to arise APH raise up, place
+him
+because of
+(relative)
+breath, wind, spirit
+and
+mind, intellect, understanding
+and
+intelligence, understanding, thought
+greater, overmuch, superfluous
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+in
+him
+solve, dissolve
+dream
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+enigma, riddle
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+bandage
+Daniel
+(relative)
+king
+PA to name, to call, ETHPA to be called, named
+name, appellation, title
+him
+Baltasar
+thence, thereafter, therefore, so then
+Daniel
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+and
+interpretation
+PA to show
+then
+Daniel
+upon, because
+before
+king
+to answer
+king
+and
+to say
+to
+Daniel
+you
+he
+Daniel
+from
+son
+captives, captivity, devastation
+(relative)
+Judah
+(relative)
+to come
+father
+me
+king
+from
+Judah
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+upon, because
+you
+(relative)
+breath, wind, spirit
+god
+pure, holy
+there is
+in
+you
+and
+illumination
+and
+intelligence, understanding, thought
+and
+wisdom
+greater, overmuch, superfluous
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+in
+you
+and
+to enter, AF to bring in, to carry in
+before
+me
+enchanter, charmer
+(relative)
+writing, book
+this
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+and
+interpretation
+him
+PA to show
+me
+and
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+interpretation
+her
+(relative)
+word, saying, thing, affair
+to
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+me
+and
+I
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+upon, because
+you
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+you
+interpretation
+to
+solve, dissolve
+and
+bandage
+to
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+if, O!
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+writing, book
+this
+to
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+and
+solve, dissolve
+him
+to
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+me
+violet, purper
+to clothe oneself, to put on (armour)
+and
+necklace
+(relative)
+gold
+in
+neck, throat
+you
+and
+a third
+in
+reign, kingdom, majesty
+to bear rule, to bear sway, AF to set in authority
+then
+to answer
+Daniel
+and
+to say
+to
+king
+gift, present, favour
+you
+to
+you
+to be
+and
+honour, glory
+house
+you
+to
+other, next
+to give
+but, but yet, however, nevertheless
+writing, book
+I
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to
+king
+and
+interpretation
+him
+PA to show
+him
+you
+king
+god
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+reign, kingdom, majesty
+and
+grandeur, magnitude, magnificence, dignity
+and
+honour, glory
+and
+praise, honour
+to give
+to
+Nebuchadnezzar
+father
+you
+and
+from
+grandeur, magnitude, magnificence, dignity
+(relative)
+to give
+to
+him
+whole
+them
+people
+and
+race, nation, people, class, genus
+and
+tongue, speech, language
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+to be
+and
+fear
+from
+before
+him
+who, which, what
+(relative)
+to be willing, to wish, to seek to
+to be
+to kill, PA to kill many
+and
+who, which, what
+(relative)
+to be willing, to wish, to seek to
+to be
+to live, to be alive, AF to keep alive
+and
+(relative)
+to be willing, to wish, to seek to
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+and
+(relative)
+to be willing, to wish, to seek to
+to lie down flat, PA to humiliate
+and
+when, although, because, while
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+heart
+him
+and
+breath, wind, spirit
+him
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+to
+PA to raise, ETHPA to be raised, to be exalted, AF to lift up, to act perversely
+to descend, PA to bring down, AF to cause to come down
+from
+chair, throne
+(relative)
+reign, kingdom, majesty
+him
+and
+honour, glory
+him
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+from
+him
+and
+from
+son
+man, human, mortal
+to urge on, banish, chase away, pursue
+and
+heart
+him
+with
+(relative)
+life, vitality, living creature
+to be even, equal, sufficient, to be worth, ETHPE to be equal, PA to lay even, to wipe, to treat as equal, to agree, ETHPA to be laid low, to agree, APH to level, make even
+and
+with
+wild ass
+dwelling, abode
+him
+and
+green herb, grass
+as, almost, about
+bull, ox
+to eat, to consume
+him
+and
+from
+dew
+(relative)
+heaven, ceiling, roof, eaves
+body
+him
+to dip, to moisten, to dye
+until, as far as, unto, so that
+(relative)
+hair
+him
+to grow, to grow up, PA to bring up, to educate
+as, almost, about
+(relative)
+eagle, roof gabled in the centre with lower roofs slanting down to side walls
+and
+fingernail, toenail, hoof, claw, talon
+him
+as, almost, about
+(relative)
+fowl
+until, as far as, unto, so that
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+(relative)
+ruling
+he
+god
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+in
+reign, kingdom, majesty
+(relative)
+man, human, mortal
+(relative)
+to
+who, which, what
+(relative)
+to be willing, to wish, to seek to
+only ipf to give, to make to be, to put
+her
+and
+to
+humble
+man, human, mortal
+to arise APH raise up, place
+upon, because
+her
+and
+you
+male offspring
+him
+Baltasar
+not
+to lie down flat, PA to humiliate
+heart
+you
+when, although, because, while
+these
+whole
+them
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+and
+upon, because
+lord
+heaven, ceiling, roof, eaves
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+and
+to
+vessel, utensil, instrument, garment
+(relative)
+house
+him
+to come
+before
+you
+and
+you
+and
+great, grown up, nobles, chiefs
+you
+and
+women
+you
+and
+concubine, sucker
+you
+must, wine
+to drink, to imbibe
+in
+them
+and
+to
+god
+(relative)
+gold
+and
+(relative)
+silver
+and
+(relative)
+brass
+and
+(relative)
+iron
+and
+(relative)
+wood
+and
+(relative)
+stone
+(relative)
+not
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+and
+not
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+and
+not
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+to be glorious
+and
+to
+god
+(relative)
+breath, living being, soul
+you
+in
+hand, side
+him
+and
+whole
+them
+way, road, custom
+you
+to
+him
+not
+to be glorious
+and
+not
+to be heavy, ETHPE to be burdened, PA to honour, treat with reverence, worship, ETHPA to be honoured, to be accounted precious, APH to make heavy or dull, to give honour, make valuable, appraise, ETTAPH to be burdened
+then
+from
+before
+him
+to send, PA to strip, to despoil
+palm of hand, sole of foot, foot measure
+hand, side
+and
+writing, book
+this
+to grace, to engrave, to inscribe
+and
+writing, book
+this
+to grace, to engrave, to inscribe
+mina
+mina
+shekel
+and
+half shekel
+this
+he
+interpretation
+her
+(relative)
+word, saying, thing, affair
+mina
+to count
+her
+god
+to
+reign, kingdom, majesty
+you
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+her
+shekel
+to weigh, to pay
+you
+in
+balance
+and
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+lack
+half shekel
+to spread out, to extend
+she
+reign, kingdom, majesty
+you
+and
+to give
+she
+to
+Mede
+and
+to
+Persia
+then
+to say
+king
+Baltasar
+and
+to clothe oneself, to put on (armour)
+him
+to
+Daniel
+violet, purper
+and
+necklace
+(relative)
+gold
+in
+neck, throat
+him
+and
+ETHPE to be proclaimed, to be announced, AF to proclaim by a herald or messenger
+upon, because
+him
+(relative)
+to be
+ruling
+a third
+in
+reign, kingdom, majesty
+in
+him
+in
+night
+to kill, PA to kill many
+Baltasar
+king
+Chaldean
+and
+Darius
+Mede
+PE to accuse, to impeach, PA to receive, to accept, AF to be opposite, to face
+reign, kingdom, majesty
+as, almost, about
+male offspring
+year
+six
+and
+two
+and
+to be fair, to be merry, to please, ETHPE to be pleased, ETHPA to be pleasing, to find favour, APH to do well, to make fair
+before
+Darius
+and
+to arise APH raise up, place
+in
+reign, kingdom, majesty
+him
+great
+might, strength, force
+hundred
+and
+ten
+(relative)
+to be
+in
+whole
+her
+reign, kingdom, majesty
+him
+and
+to
+upon, because
+from
+them
+ruling
+three
+and
+Daniel
+one
+from
+them
+(relative)
+to be
+great
+might, strength, force
+these
+to give
+to
+them
+calculation
+and
+to
+king
+not
+to be
+to bark, quarrel, fight, APH to do harm, to molest, to irritate
+then
+Daniel
+to be left over, to gain, AF to have over
+to be
+from
+whole
+them
+because of
+(relative)
+breath, wind, spirit
+greater, overmuch, superfluous
+there is
+in
+him
+and
+king
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+to
+to arise APH raise up, place
+him
+upon, because
+whole
+her
+reign, kingdom, majesty
+him
+then
+ruler
+and
+great
+might, strength, force
+to seek
+to be
+cause, pretext
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+upon, because
+Daniel
+from
+matter, possession
+reign, kingdom, majesty
+and
+whole
+folly,offence
+and
+cause, pretext
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+after, following
+him
+because of
+(relative)
+to believe
+to be
+in
+god
+him
+and
+fault, defect, injury
+and
+folly,offence
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+upon, because
+him
+and
+to say
+man
+those
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+we
+upon, because
+Daniel
+this
+cause, pretext
+if, O!
+not
+if, O!
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+upon, because
+him
+in
+judgement, law, custom
+(relative)
+god
+him
+then
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+ruler
+and
+great
+might, strength, force
+at, with, towards, for
+king
+and
+to say
+to
+him
+Darius
+king
+to
+age, era, eternity
+to live, to be alive, AF to keep alive
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+whole
+them
+ruling
+reign, kingdom, majesty
+and
+chief
+and
+great
+might, strength, force
+and
+lord
+to
+to arise APH raise up, place
+stability, station, statute, covenant
+(relative)
+king
+and
+to
+to be strong, to be true, PA to fix firmly, AF to set firmly, to make strong
+bond, tie
+(relative)
+whole
+man, human, mortal
+(relative)
+to seek
+request, petition, intercession
+from
+whole
+god
+and
+man, human, mortal
+until, as far as, unto, so that
+to
+day
+three
+if, O!
+not
+if, O!
+from
+you
+king
+to hurl, to shoot, ETHPE to be shot, discharged, to be rejected, expelled, PA to hurl, to cast off, ETHPA to be cast out, APH to cast out
+in
+well, cistern, pit, den
+(relative)
+lion
+thence, thereafter, therefore, so then
+king
+to visit, to command, to entreat, PA to give commission
+visitation, command
+this
+and
+to write, ETHPE to be written, APH to write
+writing, book
+(relative)
+not
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+in
+nome, prefecture, law, custom, usage
+Mede
+and
+Persia
+and
+not
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+then
+Darius
+king
+to grace, to engrave, to inscribe
+writing, book
+and
+to visit, to command, to entreat, PA to give commission
+visitation, command
+and
+when, although, because, while
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+Daniel
+(relative)
+to grace, to engrave, to inscribe
+writing, book
+to enter, AF to bring in, to carry in
+to
+him
+to
+house
+him
+and
+opening, window, recess
+to open, to unlock, to admit
+to be
+to
+upper room
+him
+opposite, against, before, towards
+Jerusalem
+and
+three
+time, age, era
+in
+day
+to kneel, to bow down, PA to bless
+to be
+upon, because
+knee, kneeling, genuflection
+him
+and
+to incline, to be prone to, PA to pray, AF to reach out
+and
+ETHPA to be strengthened, to prophesy, Af to confess, to acknowledge ESHTA promise
+before
+god
+him
+as, almost, about
+this
+(relative)
+to do, to make, to work
+to be
+from
+first, former
+then
+man
+those
+to guard, AF to put in a safe place
+and
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+him
+to
+Daniel
+when, although, because, while
+to seek
+and
+to pity, to spare, to be gracious, ETHPE to find mercy, ETHPA to seek favour, to make supplication
+before
+god
+him
+then
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+and
+to say
+before
+king
+king
+to
+age, era, eternity
+to live, to be alive, AF to keep alive
+not
+cutting, hewing, decree, division
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+king
+and
+to grace, to engrave, to inscribe
+(relative)
+whole
+man, human, mortal
+(relative)
+to seek
+request, petition, intercession
+from
+whole
+god
+and
+man, human, mortal
+until, as far as, unto, so that
+to
+three
+day
+if, O!
+not
+if, O!
+from
+you
+king
+to hurl, to shoot, ETHPE to be shot, discharged, to be rejected, expelled, PA to hurl, to cast off, ETHPA to be cast out, APH to cast out
+in
+well, cistern, pit, den
+(relative)
+lion
+to answer
+king
+and
+to say
+in
+truth, right, justice
+she
+word, saying, thing, affair
+as, almost, about
+nome, prefecture, law, custom, usage
+Mede
+and
+Persia
+(relative)
+not
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+then
+to answer
+and
+to say
+before
+king
+Daniel
+from
+son
+captives, captivity, devastation
+(relative)
+Judah
+not
+to arise APH raise up, place
+upon, because
+you
+and
+upon, because
+cutting, hewing, decree, division
+(relative)
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+and
+time, age, era
+three
+to seek
+request, petition, intercession
+him
+then
+king
+when, although, because, while
+word, saying, thing, affair
+this
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+much, many, great
+to be short, to be sad
+to
+him
+and
+to put, to lay up, to constitute
+in
+mind, intellect, conscience, opinion
+him
+(relative)
+PA to deliver, to set free, pss.ptc. guiltless
+him
+to
+Daniel
+and
+until, as far as, unto, so that
+to
+setting of sun, west
+sun
+to beat, to strive, to contend, ETHPE to be in an uproar, to make great effort, ETHPA to strive, to fight against
+to be
+(relative)
+PA to deliver, to set free, pss.ptc. guiltless
+him
+then
+man
+those
+clamour
+upon, because
+king
+and
+to say
+to
+him
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+king
+(relative)
+nome, prefecture, law, custom, usage
+there is
+to
+Mede
+and
+to
+Persia
+(relative)
+whole
+cutting, hewing, decree, division
+and
+stability, station, statute, covenant
+(relative)
+to arise APH raise up, place
+king
+not
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+then
+to say
+king
+and
+to come
+him
+to
+Daniel
+and
+throw down
+him
+in
+well, cistern, pit, den
+(relative)
+lion
+to answer
+king
+and
+to say
+to
+Daniel
+god
+you
+(relative)
+you
+to labour, to cultivate, to worship
+to
+him
+continually, unceasingly
+he
+to deliver, preserve, redeem, ranson
+you
+and
+to come
+stone
+one
+and
+to put, to lay up, to constitute
+upon, because
+mouth
+him
+(relative)
+well, cistern, pit, den
+and
+to seal, to sign, to ratify
+him
+king
+in
+ring, signet-ring
+him
+and
+in
+ring, signet-ring
+chief
+him
+(relative)
+not
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+matter, possession
+in
+Daniel
+then
+to go, to walk
+king
+to
+palace, temple
+him
+and
+to pass the night
+fasting
+and
+food, suburbs
+not
+to enter, AF to bring in, to carry in
+before
+him
+and
+sleep
+him
+to flee, to be scared away, to place apart, ETHPE to be crushed, PA to scare away, to break up, ETHPA to flee, to be crumbled, PAL to break in pieces, ETHPAL to be crumbled to pieces, APH to disturb
+from
+him
+then
+king
+in
+morning
+to arise APH raise up, place
+unrestrained, hastily
+and
+in
+quickly, forthwith
+to
+well, cistern, pit, den
+(relative)
+lion
+to go, to walk
+and
+when, although, because, while
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+well, cistern, pit, den
+to
+Daniel
+in
+voice, sound
+tall, high, exalted, sublime, proud
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to answer
+king
+and
+to say
+to
+Daniel
+Daniel
+servant
+him
+(relative)
+god
+alive
+god
+you
+(relative)
+you
+to labour, to cultivate, to worship
+to
+him
+continually, unceasingly
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+PA to deliver, to set free, pss.ptc. guiltless
+you
+from
+lion
+then
+Daniel
+with
+king
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+and
+to say
+king
+to
+age, era, eternity
+to live, to be alive, AF to keep alive
+god
+me
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+messenger, angel
+him
+and
+to shut, to stop. to block, ETHPE to be shut, repaired, PA to shut up closely, ETHPA to be stopped
+mouth
+them
+(relative)
+lion
+and
+not
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+me
+because of
+(relative)
+victory, justification, innocence
+before
+him
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+me
+and
+even
+before
+you
+king
+folly,offence
+not
+to do, to make, to work
+then
+upon, because
+king
+much, many, great
+to be fair, to be merry, to please, ETHPE to be pleased, ETHPA to be pleasing, to find favour, APH to do well, to make fair
+upon, because
+him
+and
+to say
+to
+to go up,to ascend
+him
+to
+Daniel
+from
+well, cistern, pit, den
+and
+to go up,to ascend
+him
+to
+Daniel
+from
+well, cistern, pit, den
+and
+something, aught
+damage
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+in
+him
+because of
+(relative)
+to believe
+to be
+in
+god
+him
+and
+to say
+king
+to come
+they, them
+to
+man
+those
+(relative)
+to eat, to consume
+gnawed or broken morsel, slander
+him
+(relative)
+Daniel
+and
+throw down
+they, them
+in
+well, cistern, pit, den
+(relative)
+lion
+to
+them
+and
+to
+women
+them
+and
+to
+son
+them
+and
+throw down
+they, them
+in
+well, cistern, pit, den
+and
+not
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+bottom
+him
+(relative)
+well, cistern, pit, den
+and
+to bear rule, to bear sway, AF to set in authority
+in
+them
+lion
+and
+whole
+bone, stone of fruit, tusks
+them
+to beat, to break in pieces, to pulverize, PA to grind to powder, AF to beat very small, PAL to pound, to hammer
+then
+Darius
+king
+to write, ETHPE to be written, APH to write
+to
+whole
+them
+people
+and
+race, nation, people, class, genus
+and
+tongue, speech, language
+(relative)
+to dwell, to stay, to inhabit
+in
+whole
+her
+earth, land
+peace, safety, welfare
+to increase, AF to make more, increase, add
+to
+you
+from
+before
+me
+to put, to lay up, to constitute
+nome, prefecture, law, custom, usage
+(relative)
+in
+whole
+power, authority, right, rule, government, ruler, commander
+reign, kingdom, majesty
+me
+to be
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+and
+fear
+from
+before
+god
+him
+(relative)
+Daniel
+(relative)
+he
+he
+god
+alive
+and
+in being, existing
+to
+age, era, eternity
+and
+reign, kingdom, majesty
+him
+not
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+and
+power, authority, right, rule, government, ruler, commander
+him
+until, as far as, unto, so that
+to
+the uttermost part, end, edge, border
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+and
+to deliver, preserve, redeem, ranson
+and
+PA to deliver, to set free, pss.ptc. guiltless
+and
+to do, to make, to work
+sign, token
+and
+marvel, wonder
+in
+heaven, ceiling, roof, eaves
+and
+in
+earth, land
+(relative)
+to deliver, preserve, redeem, ranson
+to
+Daniel
+from
+lion
+and
+Daniel
+to be great, to become great
+in
+reign, kingdom, majesty
+him
+(relative)
+Darius
+and
+in
+reign, kingdom, majesty
+him
+(relative)
+Cyrus
+Persian
+in
+year
+one
+to
+Baltasar
+king
+(relative)
+Babel
+Daniel
+dream
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+and
+appearance, likeness, vision
+head, top, summit
+him
+(relative)
+upon, because
+couch, bedroom
+him
+then
+dream
+to write, ETHPE to be written, APH to write
+and
+head, top, summit
+word, saying, thing, affair
+him
+to say
+to answer
+Daniel
+and
+to say
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+in
+appearance, likeness, vision
+(relative)
+night
+and
+behold
+four
+breath, wind, spirit
+heaven, ceiling, roof, eaves
+to gush out
+to
+sea, lake
+great
+and
+four
+life, vitality, living creature
+great, grown up, nobles, chiefs
+to go up,to ascend
+from
+sea, lake
+and
+alter
+one
+from
+one
+first
+as, almost, about
+lion
+and
+wing
+(relative)
+eagle, roof gabled in the centre with lower roofs slanting down to side walls
+there is
+to
+her
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+(relative)
+pluck out
+wing
+her
+and
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+from
+earth, land
+and
+upon, because
+foot, hoof
+her
+as, almost, about
+man, human, mortal
+to arise APH raise up, place
+and
+heart
+(relative)
+man, human, mortal
+to give
+to
+her
+and
+life, vitality, living creature
+(relative)
+two
+to be like, ETHPE to be or become like, to imitate, PA to liken, to compare, to imitate, ETHPA to be or become like, to be compared
+to
+wolf
+and
+to
+one
+side
+to arise APH raise up, place
+and
+three
+rib
+in
+mouth
+her
+middle
+tooth
+her
+and
+thus, so, such
+to say
+to
+her
+to arise APH raise up, place
+to eat, to consume
+flesh, body
+much, many, great
+after, following
+these
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+life, vitality, living creature
+other
+as, almost, about
+leopard
+and
+there is
+to
+her
+wing
+four
+(relative)
+bird
+upon, because
+side, see GNB
+her
+and
+four
+head, top, summit
+there is
+to
+her
+to
+life, vitality, living creature
+that
+and
+power, authority, right, rule, government, ruler, commander
+to give
+to
+her
+after, following
+these
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+in
+appearance, likeness, vision
+(relative)
+night
+life, vitality, living creature
+fourth
+(relative)
+might, strength, force
+and
+strong
+and
+to wax strong, to prevail
+increasingly
+and
+tooth
+great, grown up, nobles, chiefs
+(relative)
+iron
+there is
+to
+her
+to eat, to consume
+and
+to beat, to break in pieces, to pulverize, PA to grind to powder, AF to beat very small, PAL to pound, to hammer
+and
+something, aught
+(relative)
+to be left over, to gain, AF to have over
+in
+foot, hoof
+her
+to tread, to trample
+and
+she
+alter
+from
+whole
+them
+life, vitality, living creature
+(relative)
+before
+her
+and
+horn
+ten
+there is
+to
+her
+and
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+to be
+in
+horn
+her
+and
+horn
+one
+little, feeble, younger, inferior
+to go up,to ascend
+from
+middle
+them
+and
+three
+from
+horn
+first
+to uproot, to pull out, to break down
+from
+before
+her
+and
+eye
+as, almost, about
+eye
+male offspring
+man, human, mortal
+in
+horn
+that
+and
+mouth
+her
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+great, grown up, nobles, chiefs
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+chair, throne
+to put, to lay up, to constitute
+and
+to grow old, to become antiquated
+day
+to sit, AF, to make dwell, to set, place
+garment
+him
+as, almost, about
+snow
+white, clear, bright
+and
+hair
+(relative)
+head, top, summit
+him
+as, almost, about
+wool, pith
+to be clean, PA to cleanse, purify, ETHPA to be cleansed, purified
+chair, throne
+him
+flame, blaze, flesh of arms, burning fever
+(relative)
+fire
+and
+wheel, round stone, circle, ring
+him
+(relative)
+fire
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+stream, river, canal
+(relative)
+fire
+to journey, to continue, to emanate, to instruct, to chastise
+and
+to go out, to issue, to proceed forth
+from
+before
+him
+thousand
+thousand
+PA to serve, ETHPA to be served
+to
+him
+and
+myriad, ten thousand
+myriad, ten thousand
+to arise APH raise up, place
+before
+him
+judge
+to sit, AF, to make dwell, to set, place
+and
+writing, book, letters
+to open, to unlock, to admit
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+(relative)
+to kill, PA to kill many
+life, vitality, living creature
+that
+and
+to perish, to come to naught. AF to destroy
+body
+her
+and
+to give
+to
+burning, conflagration
+(relative)
+fire
+and
+remnant, rest
+them
+(relative)
+life, vitality, living creature
+to lift up, to carry, to break up, to march
+from
+power, authority, right, rule, government, ruler, commander
+them
+and
+length, duration
+and
+life
+to give
+to
+them
+while, until, unto
+time, age, era
+and
+a moment, minute
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+upon, because
+cloud, quicksilver
+heaven, ceiling, roof, eaves
+as, almost, about
+male offspring
+man, human, mortal
+to come
+and
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+until, as far as, unto, so that
+to
+to grow old, to become antiquated
+day
+and
+before
+him
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+him
+and
+to
+him
+to give
+power, authority, right, rule, government, ruler, commander
+and
+reign, kingdom, majesty
+and
+honour, glory
+(relative)
+whole
+them
+people
+and
+race, nation, people, class, genus
+and
+tongue, speech, language
+to
+him
+to labour, to cultivate, to worship
+power, authority, right, rule, government, ruler, commander
+him
+power, authority, right, rule, government, ruler, commander
+age, era, eternity
+and
+not
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+and
+reign, kingdom, majesty
+him
+not
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+to be short, to be sad
+breath, wind, spirit
+me
+I
+Daniel
+in
+the inside, inward parts
+couch, bedroom
+me
+and
+appearance, likeness, vision
+head, top, summit
+me
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+me
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+at, with, towards, for
+one
+from
+ministering
+and
+upon, because
+truth
+to take by the heel, to hold back, to follow closely, PA to track, to investigate, ETHPA to be investigated, sort out
+him
+upon, because
+these
+whole
+them
+and
+to say
+to
+me
+in
+truth
+and
+interpretation
+word, saying, thing, affair
+me
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+me
+and
+to say
+to
+me
+these
+life, vitality, living creature
+great, grown up, nobles, chiefs
+four
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+four
+king
+to arise APH raise up, place
+from
+earth, land
+and
+PE to accuse, to impeach, PA to receive, to accept, AF to be opposite, to face
+reign, kingdom, majesty
+pure, holy
+(relative)
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+and
+to be heir, to inherit
+her
+to
+reign, kingdom, majesty
+to
+age, era, eternity
+and
+to
+age, era, eternity
+age, era, eternity
+then
+to be willing, to wish, to seek to
+to
+to take by the heel, to hold back, to follow closely, PA to track, to investigate, ETHPA to be investigated, sort out
+upon, because
+life, vitality, living creature
+fourth
+(relative)
+alter
+to be
+from
+whole
+them
+and
+fear
+greatly, excessively, magnificently
+tooth
+her
+(relative)
+iron
+and
+fingernail, toenail, hoof, claw, talon
+her
+(relative)
+brass
+to eat, to consume
+and
+to beat, to break in pieces, to pulverize, PA to grind to powder, AF to beat very small, PAL to pound, to hammer
+and
+something, aught
+(relative)
+to be left over, to gain, AF to have over
+in
+foot, hoof
+her
+a treading down, trampling under foot
+and
+upon, because
+horn
+ten
+(relative)
+in
+head, top, summit
+her
+and
+upon, because
+other
+(relative)
+to go up,to ascend
+from
+middle
+them
+and
+fall
+from
+before
+her
+three
+and
+horn
+that
+eye
+there is
+to
+her
+and
+mouth
+her
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+great, grown up, nobles, chiefs
+and
+appearance, likeness, vision
+her
+great
+from
+(relative)
+companion, comrade
+her
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to be
+horn
+that
+to do, to make, to work
+nearness, war
+with
+pure, holy
+and
+to be able, to be allowed, ETHPE to be able, to dare, to oppose
+might, strength, force
+them
+until, as far as, unto, so that
+(relative)
+to come
+to grow old, to become antiquated
+day
+and
+judgement, law, custom
+to give
+to
+pure, holy
+(relative)
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+and
+time, age, era
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+and
+reign, kingdom, majesty
+to be heir, to inherit
+pure, holy
+and
+thus, so, such
+to say
+to
+me
+life, vitality, living creature
+fourth
+reign, kingdom, majesty
+fourth
+to be
+in
+earth, land
+and
+to be left over, to gain, AF to have over
+upon, because
+reign, kingdom, majesty
+and
+to eat, to consume
+earth, land
+whole
+her
+and
+to tread, to trample
+her
+and
+to beat, to break in pieces, to pulverize, PA to grind to powder, AF to beat very small, PAL to pound, to hammer
+her
+and
+horn
+ten
+from
+reign, kingdom, majesty
+ten
+king
+to arise APH raise up, place
+and
+other, next
+to arise APH raise up, place
+after, following
+them
+and
+he
+to be left over, to gain, AF to have over
+from
+first
+and
+three
+king
+to lie down flat, PA to humiliate
+and
+word, saying, thing, affair
+upon, because
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+and
+upon, because
+pure, holy
+(relative)
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+to withhold, to forbid, to hinder
+and
+to suppose, to believe, PA to hope, to trust, to place trust, to announce, PAI to bear, to endure, AF to think, to suppose
+to
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+time, age, era
+and
+nome, prefecture, law, custom, usage
+and
+to give
+in
+hand, side
+him
+while, until, unto
+a moment, minute
+a moment, minute
+and
+half, part, section
+a moment, minute
+and
+judge
+to sit, AF, to make dwell, to set, place
+and
+power, authority, right, rule, government, ruler, commander
+him
+to lift up, to carry, to break up, to march
+from
+him
+(relative)
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+him
+and
+to perish, to come to naught. AF to destroy
+him
+until, as far as, unto, so that
+to
+the uttermost part, end, edge, border
+(relative)
+reign, kingdom, majesty
+and
+power, authority, right, rule, government, ruler, commander
+and
+grandeur, magnitude, magnificence, dignity
+and
+reign, kingdom, majesty
+(relative)
+under, beneath
+heaven, ceiling, roof, eaves
+to give
+to
+people
+pure, holy
+(relative)
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+reign, kingdom, majesty
+him
+reign, kingdom, majesty
+age, era, eternity
+and
+whole
+power, authority, right, rule, government, ruler, commander
+to
+him
+to labour, to cultivate, to worship
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+until, as far as, unto, so that
+to
+here, hitherto, henceforward
+the uttermost part, end, edge, border
+her
+(relative)
+word, saying, thing, affair
+I
+Daniel
+much, many, great
+mind, intellect, conscience, opinion
+me
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+me
+and
+shining, brightness
+me
+to be altered, to remove, to depart, ETHPE to rave, PA to change, to alter, ETHPA to be changed, to be troubled, PAGLI to alter, to remove from its place, to transform, ETHPAGLI to be removed, displaced, to become different, to disguise oneself
+upon, because
+me
+and
+word, saying, thing, affair
+in
+heart
+me
+to guard, AF to put in a safe place
+in
+year
+three
+(relative)
+reign, kingdom, majesty
+him
+(relative)
+Baltasar
+king
+appearance, likeness, vision
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to
+me
+I
+Daniel
+from
+after, following
+appearance, likeness, vision
+first
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to
+me
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+in
+dream
+me
+(relative)
+in
+lily
+to be
+camp, fortress
+(relative)
+in
+Elam
+city, town, province
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+in
+dream
+me
+(relative)
+to arise APH raise up, place
+I
+upon, because
+Abul
+Ulai
+and
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+eye
+me
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+and
+behold
+male, masculine, a ram, chem. arsenic
+one
+to arise APH raise up, place
+before
+Abul
+and
+there is
+to
+him
+horn
+and
+horn
+him
+high place, hill
+and
+one
+tall, high, exalted, sublime, proud
+from
+companion, comrade
+her
+and
+that
+tall, high, exalted, sublime, proud
+latter, last
+shoot, sprout, grow, APH to make grow, bring forth
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+male, masculine, a ram, chem. arsenic
+to dig, to break, to stab, PA to wound, to butt
+to
+setting of sun, west
+and
+to
+the north wind, the north
+and
+to
+the south
+and
+whole
+them
+life, vitality, living creature
+not
+to arise APH raise up, place
+before
+him
+and
+not
+there is
+(relative)
+to deliver, preserve, redeem, ranson
+from
+hand, side
+him
+and
+to do, to make, to work
+as, almost, about
+(relative)
+to be willing, to wish, to seek to
+and
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+and
+I
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+to be
+and
+a kid, yearling goat
+(relative)
+goat, Capella
+to come
+from
+setting of sun, west
+upon, because
+nostril, countenance
+whole
+her
+earth, land
+and
+not
+to harm
+to be
+in
+earth, land
+and
+a kid, yearling goat
+horn
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+middle
+eye
+him
+and
+to come
+and
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+until, as far as, unto, so that
+to
+male, masculine, a ram, chem. arsenic
+that
+(relative)
+there is
+to
+him
+horn
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+to arise APH raise up, place
+before
+Abul
+and
+to run, to have free course, to be eager, AF to drive, to urge forward
+upon, because
+him
+in
+surge
+him
+and
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+him
+to
+male, masculine, a ram, chem. arsenic
+and
+embitter
+upon, because
+him
+and
+to strike, to beat, to wound
+him
+to
+male, masculine, a ram, chem. arsenic
+and
+to break, to rend, PA to break, to shatter
+to
+two
+them
+horn
+him
+and
+not
+to be
+in
+him
+might, strength, force
+in
+male, masculine, a ram, chem. arsenic
+to
+to arise APH raise up, place
+before
+him
+and
+throw down
+him
+upon, because
+earth, land
+and
+to tread, to trample
+him
+and
+not
+to be
+(relative)
+PA to deliver, to set free, pss.ptc. guiltless
+to
+him
+to
+male, masculine, a ram, chem. arsenic
+from
+hand, side
+him
+(relative)
+a kid, yearling goat
+(relative)
+goat, Capella
+and
+a kid, yearling goat
+(relative)
+goat, Capella
+to grow, to grow up, PA to bring up, to educate
+much, many, great
+and
+when, although, because, while
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+to break, to rend, PA to break, to shatter
+horn
+him
+great
+and
+to go up,to ascend
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+four
+from
+under
+her
+to
+four
+breath, wind, spirit
+me
+heaven, ceiling, roof, eaves
+and
+from
+one
+from
+them
+to go out, to issue, to proceed forth
+horn
+one
+little, feeble, younger, inferior
+and
+to grow, to grow up, PA to bring up, to educate
+increasingly
+to
+the south
+and
+to
+sunrise, east, Persian empire, Syria
+and
+to grow, to grow up, PA to bring up, to educate
+until, as far as, unto, so that
+to
+might, strength, force
+(relative)
+heaven, ceiling, roof, eaves
+and
+fall
+upon, because
+earth, land
+and
+from
+might, strength, force
+and
+from
+star, planet
+and
+to tread, to trample
+they, them
+and
+until, as far as, unto, so that
+to
+great
+might, strength, force
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+and
+from
+him
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+constancy
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+base, pedestal, support, foundation
+sanctuary, holy place
+him
+and
+might, strength, force
+to give
+upon, because
+constancy
+in
+debt
+and
+to hurl, to shoot, ETHPE to be shot, discharged, to be rejected, expelled, PA to hurl, to cast off, ETHPA to be cast out, APH to cast out
+holiness <deprecated>
+upon, because
+earth, land
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+and
+to prosper, to succeed
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+one
+pure, holy
+(relative)
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+and
+to say
+one
+pure, holy
+to
+someone
+(relative)
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+until, as far as, unto, so that
+to
+when, at that time
+appearance, likeness, vision
+(relative)
+constancy
+and
+iniquity, injustice
+and
+damage
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+and
+holiness <deprecated>
+and
+might, strength, force
+to tread, to trample
+and
+to say
+to
+him
+while, until, unto
+evening, eventide
+morning
+two
+thousand
+and
+three
+hundred
+and
+to conquer, to be free from guilt, PA to grant victory, to pronounce innocent
+righteous act, due, allowance
+and
+when, although, because, while
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+I
+Daniel
+appearance, likeness, vision
+to seek
+to
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+and
+behold
+to arise APH raise up, place
+opposite, against, before, towards
+me
+as, almost, about
+appearance, likeness, vision
+(relative)
+man
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+voice, sound
+(relative)
+man, human, mortal
+from
+middle
+Ulai
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+and
+to say
+Gabriel
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+to
+this
+appearance, likeness, vision
+this
+and
+to come
+at, with, towards, for
+me
+place, region
+(relative)
+to arise APH raise up, place
+I
+and
+when, although, because, while
+to come
+fear
+and
+fall
+upon, because
+nostril, countenance
+me
+and
+to say
+to
+me
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+male offspring
+man, human, mortal
+because of
+(relative)
+to
+a moment, minute
+the uttermost part, end, edge, border
+appearance, likeness, vision
+this
+and
+when, although, because, while
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+me
+to prostate oneself
+upon, because
+nostril, countenance
+me
+upon, because
+earth, land
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+me
+and
+to arise APH raise up, place
+me
+upon, because
+stability, station, statute, covenant
+me
+and
+to say
+to
+me
+behold
+I
+PA to show
+I
+to
+you
+what
+(relative)
+to be
+in
+the uttermost part, end, edge, border
+Use R&WG(WZ/
+in
+time, age, era
+the uttermost part, end, edge, border
+male, masculine, a ram, chem. arsenic
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+there is
+to
+him
+horn
+king
+Mede
+and
+Persia
+and
+a kid, yearling goat
+(relative)
+goat, Capella
+king
+(relative)
+Greek
+and
+horn
+great
+(relative)
+there is
+middle
+eye
+him
+he
+he
+king
+first
+and
+(relative)
+to break, to rend, PA to break, to shatter
+and
+to arise APH raise up, place
+four
+under
+her
+four
+king
+from
+people
+to arise APH raise up, place
+and
+not
+in
+might, strength, force
+them
+and
+in
+the uttermost part, end, edge, border
+reign, kingdom, majesty
+them
+what
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+debt
+to arise APH raise up, place
+king
+strong
+nostril, countenance
+and
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+power, grasp
+and
+to wax strong, to prevail
+might, strength, force
+him
+and
+not
+in
+might, strength, force
+(relative)
+breath, animal soul
+him
+and
+marvel, wonder
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+and
+to prosper, to succeed
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+and
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+strong
+and
+people
+(relative)
+pure, holy
+and
+in
+power, grasp
+him
+to prosper, to succeed
+deceit, perfidy, treachery
+in
+hand, side
+him
+and
+heart
+him
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+and
+in
+stillness, calm, stupor, silence
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+much, many, great
+and
+upon, because
+ruling
+ruler
+to arise APH raise up, place
+and
+in
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+hand, side
+to break, to rend, PA to break, to shatter
+and
+appearance, likeness, vision
+(relative)
+morning
+and
+(relative)
+evening, eventide
+(relative)
+to say
+truth, right, justice
+he
+and
+you
+then
+Daniel
+to cover, PA to cover, to hide, to conceal, ETHPA to be covered, clothed
+him
+to
+appearance, likeness, vision
+this
+because of
+(relative)
+to
+day
+he
+much, many, great
+and
+I
+Daniel
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+and
+to trouble, disturb, ETHPE to be shaken, disturbed, PA to ruffle, disquiet, ETHPA=ETHPE
+day
+and
+to arise APH raise up, place
+and
+to visit, to inspect, to deal, to perform, to act
+to do, to make, to work
+(relative)
+king
+and
+ptc.pass wonderful, marvellous, PA to make marvellous, ETHPA to wonder, marvel be amazed, APH, to astonish, cause to wonder
+in
+appearance, likeness, vision
+and
+not
+there is
+(relative)
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+in
+year
+one
+(relative)
+Darius
+male offspring
+Ahasuerus
+from
+seed, offspring
+(relative)
+Mede
+(relative)
+to counsel, to promise, to reign
+in
+reign, kingdom, majesty
+(relative)
+Chaldean
+in
+year
+one
+(relative)
+reign, kingdom, majesty
+him
+I
+Daniel
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+in
+writing, book, letters
+in
+numbering, number, reckoning
+year
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+(relative)
+to be
+word, saying, matter, thing
+him
+(relative)
+THE LORD
+(relative)
+to say
+Jeremiah
+prophet
+when, although, because, while
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+to
+desert, plain, emptiness, desolation
+her
+(relative)
+Jerusalem
+seven
+year
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+nostril, countenance
+me
+before
+THE LORD
+god
+to
+to seek
+in
+prayer, reconciliation
+and
+in
+supplication
+and
+in
+a fast
+and
+in
+sackcloth, haircloth, sack, bag
+and
+in
+ash, ashes
+and
+to incline, to be prone to, PA to pray, AF to reach out
+before
+THE LORD
+god
+me
+and
+ETHPA to be strengthened, to prophesy, Af to confess, to acknowledge ESHTA promise
+and
+to say
+in
+request, petition, intercession
+THE LORD
+god
+great
+and
+fear
+to guard, AF to put in a safe place
+stability, station, statute, covenant
+and
+goodness, favour, kindness
+to
+to love, to desire, PA to have mercy upon
+him
+and
+to
+who, which, what
+(relative)
+to guard, AF to put in a safe place
+visitation, command
+him
+to miss, to sin, PA to be arrogant, AF to cause to sin
+and
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+and
+APH to speak or act impiously, to do wickedness, SHAPH to conceal wickedness
+and
+to rebel, to go beyond, to surpass
+and
+to turn aside, to depart (from)
+from
+visitation, command
+you
+and
+from
+judgement, law, custom
+you
+and
+not
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+to
+servant
+you
+prophet
+(relative)
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+in
+name, appellation, title
+you
+upon, because
+king
+us
+and
+upon, because
+chief
+us
+and
+upon, because
+father
+us
+and
+upon, because
+whole
+him
+people
+(relative)
+earth, land
+[possessive]
+you
+THE LORD
+victory, justification, innocence
+and
+[possessive]
+us
+shame, disgrace
+nostril, countenance
+as, almost, about
+(relative)
+today
+to
+man, human, mortal
+Judah
+and
+to
+inhabitant
+her
+(relative)
+Jerusalem
+and
+to
+whole
+him
+Israel
+(relative)
+near
+and
+(relative)
+distant, far
+in
+whole
+earth, land
+(relative)
+to scatter, PA to scatter abroad, disperse, ETHPA to be scattered abroad, dispersed
+they, them
+to
+there, yonder
+in
+iniquity, injustice
+them
+(relative)
+PA to raise, ETHPA to be raised, to be exalted, AF to lift up, to act perversely
+in
+you
+THE LORD
+[possessive]
+us
+shame, disgrace
+nostril, countenance
+to
+king
+us
+and
+to
+chief
+us
+and
+to
+father
+us
+upon, because
+(relative)
+to miss, to sin, PA to be arrogant, AF to cause to sin
+to
+you
+(relative)
+THE LORD
+god
+womb, tenderness, compassion
+and
+release, forgiveness
+sin, fault
+(relative)
+to rebel, to go beyond, to surpass
+in
+him
+and
+not
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+in
+voice, sound
+him
+(relative)
+THE LORD
+god
+us
+to
+PA to go, to walk
+in
+nome, prefecture, law, custom, usage
+him
+(relative)
+to give
+before
+us
+in
+hand, side
+servant
+him
+prophet
+and
+whole
+him
+Israel
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+upon, because
+nome, prefecture, law, custom, usage
+you
+and
+to turn aside, to depart (from)
+and
+not
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+in
+voice, sound
+you
+and
+to come
+upon, because
+them
+curse, malediction, imprecation
+and
+oath, curse
+(relative)
+to write, ETHPE to be written, APH to write
+in
+nome, prefecture, law, custom, usage
+him
+(relative)
+Moses
+servant
+him
+(relative)
+god
+upon, because
+(relative)
+to miss, to sin, PA to be arrogant, AF to cause to sin
+before
+him
+and
+to arise APH raise up, place
+word, saying, thing, affair
+him
+(relative)
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+upon, because
+us
+and
+upon, because
+judge
+us
+(relative)
+to judge, to rule, to bring a suit
+us
+to
+to come
+upon, because
+us
+evil
+great
+(relative)
+not
+to do, to make, to work
+as, such as, like
+her
+under, beneath
+heaven, ceiling, roof, eaves
+as, almost, about
+(relative)
+to do, to make, to work
+in
+Jerusalem
+as, almost, about
+(relative)
+to write, ETHPE to be written, APH to write
+in
+nome, prefecture, law, custom, usage
+(relative)
+Moses
+whole
+her
+evil
+this
+to come
+upon, because
+us
+and
+not
+to incline, to be prone to, PA to pray, AF to reach out
+before
+THE LORD
+god
+us
+(relative)
+to return, to flow back, to repent
+from
+iniquity, injustice
+us
+and
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+firmness, truth, faithfulness
+you
+and
+to wake, to watch, PA to wake, to rouse, AF to wake, to awaken, ETTAPH to awake, to be awakened, aroused, excited, to be attentive, sober, to wake from the dead
+THE LORD
+evil
+and
+to come
+her
+upon, because
+us
+because of
+(relative)
+upright, righteous
+he
+THE LORD
+god
+us
+in
+whole
+them
+work
+him
+(relative)
+to do, to make, to work
+and
+not
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+in
+voice, sound
+him
+thence, thereafter, therefore, so then
+THE LORD
+god
+us
+(relative)
+to go out, to issue, to proceed forth
+to
+people
+you
+from
+earth, land
+(relative)
+Egypt
+in
+hand, side
+strong
+and
+to do, to make, to work
+to
+you
+name, appellation, title
+as, almost, about
+(relative)
+today
+to miss, to sin, PA to be arrogant, AF to cause to sin
+and
+APH to speak or act impiously, to do wickedness, SHAPH to conceal wickedness
+THE LORD
+as, almost, about
+whole
+her
+righteousness, alms
+you
+(relative)
+to do, to make, to work
+with
+us
+to turn, to change, to move
+Use R&WG(WZ/
+you
+and
+rage, fury
+you
+from
+city, town, province
+you
+Jerusalem
+and
+from
+mountain
+you
+pure, holy
+because of
+(relative)
+in
+sin, fault
+us
+and
+in
+iniquity, injustice
+(relative)
+father
+us
+people
+you
+to scatter, PA to scatter abroad, disperse, ETHPA to be scattered abroad, dispersed
+in
+whole
+place, region
+to be
+Jerusalem
+shameful thing, shame, reproach
+to
+whole
+them
+people
+thence, thereafter, therefore, so then
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+god
+in
+prayer, reconciliation
+him
+(relative)
+servant
+you
+and
+in
+supplication
+us
+and
+to be light, shine, PA to bring to light, enlighten, make clear, ETHPA to receive light, to be enlightened, APH to give forth light, to shine brightly
+nostril, countenance
+you
+in
+sanctuary, holy place
+you
+(relative)
+desolate, uninhabited, arid
+because of
+name, appellation, title
+you
+THE LORD
+to turn, decline, ETHPE to incline oneself, bend, be bent, dismount, descend, APH to lower, let down, to incline
+god
+me
+ear, gills, handle, promontory, bay
+you
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+and
+to open, to unlock, to admit
+eye
+you
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+desolate, uninhabited, arid
+us
+and
+rust, waste, uncultivation, desert, solitude
+us
+and
+city, town, province
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+name, appellation, title
+you
+upon, because
+her
+not
+to be
+however
+upon, because
+righteousness, alms
+us
+PE ptc only to trust, to put confidence in, ETHPE to trust, to rely upon
+we
+and
+to tingle (as the ears)
+we
+before
+you
+if, O!
+not
+upon, because
+to love, to desire, PA to have mercy upon
+you
+much, many, great
+THE LORD
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+THE LORD
+to have pity, to refrain from
+us
+THE LORD
+to give ear, to give heed, to obey
+and
+to do, to make, to work
+and
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+because of
+name, appellation, title
+you
+god
+me
+because of
+(relative)
+name, appellation, title
+you
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+upon, because
+city, town, province
+you
+and
+upon, because
+people
+you
+and
+while, until, unto
+I
+to tingle (as the ears)
+and
+ETHPA to be strengthened, to prophesy, Af to confess, to acknowledge ESHTA promise
+debt
+me
+and
+debt
+people
+me
+Israel
+and
+throw down
+I
+supplication
+me
+before
+THE LORD
+god
+upon, because
+mountain
+him
+pure, holy
+(relative)
+god
+me
+and
+while, until, unto
+I
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+in
+prayer, reconciliation
+and
+man
+Gabriel
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+in
+appearance, likeness, vision
+from
+first, former
+to fly, to float, to pervade, PA to flutter, to squander, ETHPA to be squandered, APH to cause to fly, to diffuse, ETHTAPH to be allowed to fly
+to fly, to float, to pervade, PA to flutter, to squander, ETHPA to be squandered, APH to cause to fly, to diffuse, ETHTAPH to be allowed to fly
+and
+to fly on high, circle in the air
+and
+to come
+from
+heaven, ceiling, roof, eaves
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+at, with, towards, for
+me
+in
+time, age, era
+(relative)
+offering
+(relative)
+evening, eventide
+and
+to come
+and
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+me
+and
+to say
+to
+me
+Daniel
+this hour
+to go out, to issue, to proceed forth
+(relative)
+to learn, PA to teach, to train
+you
+(relative)
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+in
+head, top, summit
+prayer, reconciliation
+you
+to go out, to issue, to proceed forth
+word, saying, matter, thing
+and
+I
+to come
+to
+PA to show
+you
+because of
+(relative)
+to desire, covet, lust, PALP to make to long, to arouse desire, ETHPALP to long sorely, yearn, earnestly desire, APH to long, covet
+you
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+in
+word, saying, matter, thing
+and
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+in
+appearance, likeness, vision
+seven
+week
+to rest, to stay quiet
+upon, because
+people
+you
+and
+upon, because
+town, village
+(relative)
+holiness <deprecated>
+you
+to
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+debt
+and
+to
+to finish, to accomplish, PA to make perfect, to bring to an end
+sin, fault
+to
+release, forgiveness
+iniquity, injustice
+and
+to
+to come
+righteous act, due, allowance
+(relative)
+from
+age, era, eternity
+and
+to
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+appearance, likeness, vision
+and
+prophet
+and
+to
+to besmear, to anoint, PA to measure, to proportion
+holiness, sanctity, holy things,sanctuary
+holiness <deprecated>
+and
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+and
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+from
+going forth, departure
+her
+(relative)
+word, saying, thing, affair
+to
+to turn, to change, to move
+and
+to
+to build,PA to restore,to edify
+to
+Jerusalem
+and
+to
+to come
+to besmear, to anoint, PA to measure, to proportion
+king
+week
+seven
+and
+week
+six
+and
+two
+to turn, to change, to move
+and
+to build,PA to restore,to edify
+to
+Jerusalem
+an open space, street, square, market-place
+her
+and
+street
+her
+to
+end of a fixed period
+time, age, era
+and
+after, following
+week
+six
+and
+two
+to kill, PA to kill many
+to besmear, to anoint, PA to measure, to proportion
+and
+not
+there is
+to
+her
+and
+town, village
+(relative)
+holiness <deprecated>
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+with
+king
+(relative)
+to come
+and
+latter end, extremity
+her
+in
+flood
+and
+until, as far as, unto, so that
+to
+latter end, extremity
+(relative)
+nearness, war
+(relative)
+decree
+(relative)
+damage
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+covenant
+to
+much, many, great
+week
+one
+and
+half, part, section
+week
+and
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+sacrifice, offering
+and
+offering
+and
+upon, because
+side or edge of wing, border of skirt, arms, lap, bosom
+her
+(relative)
+defilement, abomination
+damage
+until, as far as, unto, so that
+to
+end, destruction
+(relative)
+decree
+to rest, to stay quiet
+upon, because
+damage
+in
+year
+three
+(relative)
+Cyrus
+king
+(relative)
+Persia
+word, saying, matter, thing
+to uncover, PA to reveal, to lead or go into captivity
+to
+Daniel
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+name, appellation, title
+him
+Baltasar
+and
+true
+word, saying, matter, thing
+and
+in
+might, strength, force
+great
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+word, saying, matter, thing
+and
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+in
+him
+in
+appearance, likeness, vision
+in
+day
+those
+I
+Daniel
+to be
+to sit, AF, to make dwell, to set, place
+in
+mourning
+three
+week
+(relative)
+day
+food, bread
+(relative)
+desire, longing, object of desire
+not
+to eat, to consume
+and
+flesh, body
+and
+must, wine
+not
+to enter, AF to bring in, to carry in
+to
+mouth
+me
+and
+ointment
+not
+to besmear, to anoint, PA to measure, to proportion
+until, as far as, unto, so that
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+three
+week
+(relative)
+day
+in
+day
+four
+and
+ten
+in
+month
+first
+I
+to be
+upon, because
+hand, side
+stream, river, canal
+great
+Euphrates
+and
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+eye
+me
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+and
+behold
+man
+one
+(relative)
+to clothe oneself, to put on (armour)
+garment
+(relative)
+honour, glory
+and
+loin, back
+him
+to gird, bind up
+in
+honour, glory
+praise
+and
+appearance, likeness, vision
+him
+alter
+and
+not
+there is
+to
+him
+to be like, ETHPE to be or become like, to imitate, PA to liken, to compare, to imitate, ETHPA to be or become like, to be compared
+and
+nostril, countenance
+him
+as, almost, about
+appearance, likeness, vision
+(relative)
+lightning
+and
+eye
+him
+as, almost, about
+lamp, torch
+(relative)
+fire
+and
+arm, shoulder, sleeve
+him
+and
+shoulder, shoulder blade, upper side
+him
+as, almost, about
+eye
+(relative)
+brass
+(relative)
+shine
+and
+voice, sound
+(relative)
+word, saying, matter, thing
+him
+as, almost, about
+voice, sound
+might, strength, force
+much, many, great
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+I
+Daniel
+in
+only, alone, sole
+me
+appearance, likeness, vision
+this
+and
+man
+(relative)
+to be
+with
+me
+not
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+if, O!
+not
+fear, dread, awe, worship, idol
+great
+fall
+upon, because
+them
+and
+to flee, to avoid
+from
+fear, dread, awe, worship, idol
+and
+I
+in
+only, alone, sole
+me
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+appearance, likeness, vision
+this
+great
+and
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+in
+me
+might, strength, force
+and
+the inside, inward parts
+me
+to turn, to change, to move
+to
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+and
+not
+to be
+in
+me
+might, strength, force
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+voice, sound
+(relative)
+word, saying, thing, affair
+him
+fall
+upon, because
+nostril, countenance
+me
+upon, because
+earth, land
+and
+behold
+hand, side
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+me
+and
+to arise APH raise up, place
+me
+upon, because
+knee, kneeling, genuflection
+me
+and
+upon, because
+palm of hand, sole of foot, foot measure
+hand, side
+me
+and
+to say
+to
+me
+to arise APH raise up, place
+Daniel
+man
+(relative)
+desire, longing, object of desire
+and
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+in
+word, saying, matter, thing
+(relative)
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+I
+with
+you
+and
+to arise APH raise up, place
+upon, because
+stability, station, statute, covenant
+you
+because of
+(relative)
+this hour
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+upon, because
+you
+and
+when, although, because, while
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+me
+word, saying, thing, affair
+this
+to arise APH raise up, place
+to be
+and
+tremble, APH cause to tremble
+and
+to say
+to
+me
+not
+fear
+Daniel
+because of
+(relative)
+from
+day
+first
+(relative)
+to give
+heart
+you
+to
+information, knowledge, doctrine
+to
+to arise APH raise up, place
+before
+god
+you
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+word, saying, thing, affair
+you
+and
+I
+to come
+in
+word, saying, thing, affair
+you
+and
+ruling
+(relative)
+reign, kingdom, majesty
+(relative)
+Persia
+to arise APH raise up, place
+opposite, against, before, towards
+me
+ten
+and
+one
+day
+and
+behold
+Michael
+one
+from
+chief
+first
+to come
+to
+to help, to assist, PA to help, to favour, to be useful, (with BTR) to take the part of
+me
+and
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+there, yonder
+opposite, against, before, towards
+ruling
+(relative)
+Persia
+and
+I
+to come
+to
+PA to show
+you
+something, aught
+(relative)
+to heap up, to chance, to happen
+to
+people
+you
+in
+latter end, extremity
+(relative)
+day
+because of
+(relative)
+again, back
+appearance, likeness, vision
+to
+the uttermost part, end, edge, border
+day
+and
+when, although, because, while
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+me
+word, saying, thing, affair
+these
+to put, to lay up, to constitute
+nostril, countenance
+me
+in
+earth, land
+and
+to cease, to keep silence, to hold his peace, PA to still, stop, silence, ETHPA to be silenced
+and
+behold
+as, almost, about
+form, shape, pattern
+(relative)
+man, human, mortal
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+lip, brim, edge
+me
+and
+to open, to unlock, to admit
+mouth
+me
+and
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+and
+to say
+to
+that
+(relative)
+to arise APH raise up, place
+opposite, against, before, towards
+me
+lord
+me
+in
+appearance, likeness, vision
+to turn, to change, to move
+the inside, inward parts
+me
+upon, because
+me
+and
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+to arise APH raise up, place
+and
+as, almost, about
+this
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+servant
+him
+(relative)
+lord
+me
+this
+to
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+lord
+me
+this
+(relative)
+behold
+not
+there is
+in
+me
+might, strength, force
+and
+breath, living being, soul
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+in
+me
+and
+AF to add, to increase, to be greater
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+me
+as, almost, about
+appearance, likeness, vision
+(relative)
+man, human, mortal
+and
+might, strength, force
+me
+and
+to say
+to
+me
+not
+fear
+man
+(relative)
+desire, longing, object of desire
+peace, safety, welfare
+to
+you
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+and
+when, although, because, while
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+with
+me
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+and
+to say
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+lord
+me
+because of
+(relative)
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+and
+to say
+to
+me
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+you
+to
+what, why, wherefore
+to come
+at, with, towards, for
+you
+this hour
+to turn, to change, to move
+to
+to do, to make, to work
+nearness, war
+people
+ruling
+(relative)
+Persia
+and
+I
+to go out, to issue, to proceed forth
+and
+behold
+ruling
+(relative)
+Greek
+to come
+but, but yet, however, nevertheless
+PA to show
+you
+something, aught
+(relative)
+to grace, to engrave, to inscribe
+in
+writing, book
+(relative)
+truth, right, justice
+and
+not
+there is
+(relative)
+to help, to assist, PA to help, to favour, to be useful, (with BTR) to take the part of
+to be
+to
+me
+in
+these
+whole
+them
+if, O!
+not
+if, O!
+Michael
+ruling
+you
+and
+I
+in
+year
+one
+(relative)
+Darius
+Mede
+to arise APH raise up, place
+to
+PA to strengthen, to comfort, to confirm, ETHPA to be strong, to take courage
+me
+and
+to
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+me
+thence, thereafter, therefore, so then
+in
+truth, right, justice
+PA to show
+you
+again, back
+three
+king
+to arise APH raise up, place
+in
+Persia
+and
+fourth
+to be or grow rich
+riches, opulence
+great
+greater, overmuch, superfluous
+from
+whole
+them
+and
+what
+(relative)
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+in
+place, region
+him
+to wake, to watch, PA to wake, to rouse, AF to wake, to awaken, ETTAPH to awake, to be awakened, aroused, excited, to be attentive, sober, to wake from the dead
+whole
+reign, kingdom, majesty
+them
+(relative)
+Greek
+and
+to arise APH raise up, place
+king
+mighty, strong
+and
+to bear rule, to bear sway, AF to set in authority
+power, authority, right, rule, government, ruler, commander
+great
+and
+to do, to make, to work
+as, almost, about
+will, desire
+him
+and
+when, although, because, while
+to arise APH raise up, place
+to break, to rend, PA to break, to shatter
+reign, kingdom, majesty
+him
+and
+to scatter, PA to scatter abroad, disperse, ETHPA to be scattered abroad, dispersed
+to
+four
+breath, wind, spirit
+heaven, ceiling, roof, eaves
+and
+not
+as, almost, about
+the uttermost part, end, edge, border
+him
+and
+not
+as, almost, about
+power, authority, right, rule, government, ruler, commander
+him
+(relative)
+to bear rule, to bear sway, AF to set in authority
+if, O!
+not
+to uproot, to pull out, to break down
+reign, kingdom, majesty
+him
+and
+not
+there is
+other, next
+to
+outside area
+from
+these
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+king
+(relative)
+the south
+and
+chief
+him
+and
+to wax strong, to prevail
+upon, because
+him
+and
+to bear rule, to bear sway, AF to set in authority
+power, authority, right, rule, government, ruler, commander
+great
+and
+to
+the uttermost part, end, edge, border
+year
+to be even, equal, sufficient, to be worth, ETHPE to be equal, PA to lay even, to wipe, to treat as equal, to agree, ETHPA to be laid low, to agree, APH to level, make even
+and
+daughter
+king
+(relative)
+the south
+to go, to walk
+at, with, towards, for
+king
+(relative)
+the north wind, the north
+to
+to do, to make, to work
+peace
+middle
+them
+and
+not
+to be
+in
+her
+might, strength, force
+from
+fear, dread, awe, worship, idol
+(relative)
+fear
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+she
+and
+to come
+her
+and
+a youth, maiden, young, juvenile
+her
+and
+to wax strong, to prevail
+her
+in
+time, age, era
+that
+and
+to arise APH raise up, place
+from
+root, plant, shoot, origin, medicinal herb
+(relative)
+seed, offspring
+him
+upon, because
+place, region
+him
+and
+to come
+in
+might, strength, force
+and
+to come
+in
+bottom, force, strength, power
+upon, because
+king
+(relative)
+the north wind, the north
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+in
+them
+and
+to wax strong, to prevail
+and
+even
+fear, dread, awe, worship, idol
+them
+and
+vessel, utensil, instrument, garment
+desire, longing, object of desire
+them
+silver, money
+and
+gold
+and
+captives, captivity, devastation
+to descend, PA to bring down, AF to cause to come down
+to
+Egypt
+and
+he
+one
+two
+to arise APH raise up, place
+upon, because
+king
+(relative)
+the north wind, the north
+and
+to enter, AF to bring in, to carry in
+in
+bottom, force, strength, power
+king
+(relative)
+the south
+and
+to turn, to change, to move
+to
+earth, land
+him
+and
+son
+him
+to trickle down, to be dragged away, PA to provoke, to incite
+and
+to gather together, to collect, PA to assemble, to call together
+might, strength, force
+much, many, great
+and
+to enter, AF to bring in, to carry in
+upon, because
+him
+and
+to rush, to overflow, to seize, ETHPE to be seized, APH to overflow, to overwhelm
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+and
+to turn, to change, to move
+and
+to trickle down, to be dragged away, PA to provoke, to incite
+until, as far as, unto, so that
+to
+strength, multitude, stronghold
+and
+embitter
+king
+(relative)
+the south
+and
+to go out, to issue, to proceed forth
+to meet, to encounter
+him
+to
+king
+(relative)
+the north wind, the north
+and
+to arise APH raise up, place
+might, strength, force
+great
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+might, strength, force
+that
+in
+hand, side
+him
+and
+to perish, to come to naught. AF to destroy
+him
+to
+might, strength, force
+and
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+heart
+him
+and
+throw down
+much, many, great
+and
+not
+to wax strong, to prevail
+and
+to turn, to change, to move
+king
+(relative)
+the north wind, the north
+and
+to arise APH raise up, place
+might, strength, force
+(relative)
+much, many, great
+from
+first
+and
+to
+end of a fixed period
+time, age, era
+one
+two
+to come
+in
+coming
+him
+in
+might, strength, force
+much, many, great
+and
+in
+horseman
+to wax strong, to prevail
+and
+in
+time, age, era
+that
+much, many, great
+to arise APH raise up, place
+upon, because
+king
+(relative)
+the north wind, the north
+and
+son
+wicked
+with
+you
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+to
+to arise APH raise up, place
+appearance, likeness, vision
+and
+to thrust, to throw, to pull down, PA to utterly defeat, destroy
+and
+to come
+king
+(relative)
+the north wind, the north
+and
+to lay wait, to lie in ambush
+lying in wait, lair, ambush
+and
+to break up, to subjugate, to subdue
+fortification
+to wax strong, to prevail
+and
+arm, shoulder, sleeve
+(relative)
+the south
+not
+to arise APH raise up, place
+because of
+(relative)
+not
+there is
+in
+them
+might, strength, force
+to
+to arise APH raise up, place
+and
+to arise APH raise up, place
+to choose
+(relative)
+people
+and
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+because of
+(relative)
+not
+there is
+in
+them
+might, strength, force
+to
+to arise APH raise up, place
+and
+to do, to make, to work
+that
+(relative)
+to come
+upon, because
+him
+as, almost, about
+will, desire
+him
+and
+not
+there is
+(relative)
+to arise APH raise up, place
+before
+him
+and
+to arise APH raise up, place
+in
+earth, land
+(relative)
+Israel
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+in
+hand, side
+him
+and
+to put, to lay up, to constitute
+nostril, countenance
+him
+to
+to enter, AF to bring in, to carry in
+in
+bottom, force, strength, power
+whole
+reign, kingdom, majesty
+and
+whole
+people
+him
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+and
+daughter
+man, human, mortal
+to give
+to
+him
+to
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+him
+and
+not
+to arise APH raise up, place
+and
+not
+to be
+[possessive]
+him
+and
+to turn, to change, to move
+nostril, countenance
+him
+upon, because
+island
+(relative)
+sea, lake
+and
+to break up, to subjugate, to subdue
+much, many, great
+and
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+ruling
+(relative)
+to revile, to scorn, PA same
+to be
+to
+him
+and
+shameful thing, shame, reproach
+him
+to turn, to change, to move
+to
+him
+and
+to put, to lay up, to constitute
+nostril, countenance
+him
+upon, because
+bottom, force, strength, power
+her
+(relative)
+earth, land
+and
+to thrust, to throw, to pull down, PA to utterly defeat, destroy
+and
+fall
+and
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+and
+to arise APH raise up, place
+upon, because
+base, pedestal, support, foundation
+him
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+power, authority, right, rule, government, ruler, commander
+and
+glory, honour
+reign, kingdom, majesty
+and
+in
+day
+little, feeble, younger, inferior
+to break, to rend, PA to break, to shatter
+not
+in
+Use R&WG(WZ/
+and
+not
+in
+occasion, battle
+and
+to arise APH raise up, place
+upon, because
+place, region
+him
+weak
+and
+not
+to give
+upon, because
+him
+glory, honour
+reign, kingdom, majesty
+and
+to come
+in
+stillness, calm, stupor, silence
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+reign, kingdom, majesty
+in
+slippery place, slip-up
+and
+bottom, force, strength, power
+them
+(relative)
+walled city, fortified place
+to spoil, to plunder
+and
+to break, to rend, PA to break, to shatter
+from
+before
+him
+even
+leader, ruler, judge
+(relative)
+covenant
+and
+from
+who, which, what
+(relative)
+to make share
+to
+him
+to do, to make, to work
+upon, because
+him
+deceit, perfidy, treachery
+and
+to go up,to ascend
+and
+to wax strong, to prevail
+in
+people
+little, feeble, younger, inferior
+and
+in
+to be or grow fat, to ripen, ETHPE to grow fat, PA to fatten
+(relative)
+city, town, province
+and
+to do, to make, to work
+something, aught
+(relative)
+not
+to do, to make, to work
+father
+him
+and
+father
+(relative)
+father
+him
+and
+spoil,robbery
+and
+captives, captivity, devastation
+and
+possessions, landed property
+them
+to lead, to guide, PA to lead, to guide, to drive
+and
+upon, because
+walled city, fortified place
+them
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+thought, idea, device, consideration
+and
+until, as far as, unto, so that
+to
+time, age, era
+to wake, to watch, PA to wake, to rouse, AF to wake, to awaken, ETTAPH to awake, to be awakened, aroused, excited, to be attentive, sober, to wake from the dead
+might, strength, force
+him
+and
+heart
+him
+upon, because
+king
+(relative)
+the south
+in
+might, strength, force
+great
+and
+to wax strong, to prevail
+and
+king
+(relative)
+the south
+PA to provoke, to entice
+to
+nearness, war
+in
+might, strength, force
+great
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+greatly, excessively, magnificently
+and
+not
+to arise APH raise up, place
+because of
+(relative)
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+upon, because
+him
+thought, idea, device, consideration
+us
+and
+to eat, to consume
+royal food
+him
+to break, to rend, PA to break, to shatter
+him
+and
+might, strength, force
+him
+to scatter, PA to scatter abroad, disperse, ETHPA to be scattered abroad, dispersed
+and
+fall
+to lay waste, to destroy
+much, many, great
+and
+two
+them
+king
+these
+heart
+them
+to
+evil
+and
+upon, because
+one
+table, tray, gift
+deceit, perfidy, treachery
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+and
+not
+to prosper, to succeed
+because of
+(relative)
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+cutting off, end
+to
+time, age, era
+him
+and
+to turn, to change, to move
+to
+earth, land
+him
+in
+might, strength, force
+much, many, great
+and
+heart
+him
+upon, because
+stability, station, statute, covenant
+pure, holy
+and
+to do, to make, to work
+as, almost, about
+(relative)
+in
+first
+even
+in
+latter, last
+and
+to come
+upon, because
+him
+camp, host
+(relative)
+Kittite
+and
+to break, to rend, PA to break, to shatter
+him
+and
+to turn, to change, to move
+and
+to be angry, AF to provoke to anger
+upon, because
+stability, station, statute, covenant
+pure, holy
+and
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+in
+who, which, what
+(relative)
+to leave, to leave behind, to dismiss, to remit
+stability, station, statute, covenant
+pure, holy
+and
+bottom, force, strength, power
+them
+from
+them
+to arise APH raise up, place
+and
+PA to profane, to pollute, to defile, ETHPA to be defiled, polluted
+sanctuary, holy place
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+offering
+and
+only ipf to give, to make to be, to put
+defilement, abomination
+to
+damage
+and
+who, which, what
+(relative)
+to enter, AF to bring in, to carry in
+upon, because
+stability, station, statute, covenant
+to be unequal, to be powerless, to owe, to be guilty, PA to prevail, to cause to take an oath, condemn
+they, them
+and
+people
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+fear, dread, awe, worship, idol
+to wax strong, to prevail
+and
+upright, righteous
+him
+(relative)
+people
+to learn, PA to teach, to train
+to
+much, many, great
+and
+to weigh, to pay
+in
+sword, blade, dagger
+and
+in
+fire
+and
+in
+captives, captivity, devastation
+and
+in
+spoil,robbery
+day
+thousand
+and
+what
+(relative)
+to thrust, to throw, to pull down, PA to utterly defeat, destroy
+to help, to assist, PA to help, to favour, to be useful, (with BTR) to take the part of
+aid
+swift, light, rapid, small, few
+and
+AF to add, to increase, to be greater
+upon, because
+them
+much, many, great
+in
+portion, division, dissension, duplicity
+and
+from
+wise, sensible
+to thrust, to throw, to pull down, PA to utterly defeat, destroy
+to
+to try, to prove, to examine, ETHPE to be tried, to prove oneself
+in
+them
+and
+to
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+while, until, unto
+a moment, minute
+cutting off, end
+because of
+(relative)
+again, back
+there is
+length, duration
+to
+time, age, era
+and
+to do, to make, to work
+king
+as, almost, about
+will, desire
+him
+and
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+upon, because
+whole
+god
+and
+upon, because
+god
+god
+PE ptc pss endowed with speech and reason, PAL to speak, ETHPAL to be spoken of, to be accused
+great, grown up, nobles, chiefs
+and
+to prosper, to succeed
+while, until, unto
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+Use R&WG(WZ/
+because of
+(relative)
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+to do, to make, to work
+and
+in
+god
+(relative)
+father
+him
+not
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+and
+upon, because
+desire, longing, object of desire
+women
+and
+upon, because
+whole
+god
+not
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+if, O!
+not
+upon, because
+whole
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+and
+to
+god
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+upon, because
+base, pedestal, support, foundation
+him
+to be heavy, ETHPE to be burdened, PA to honour, treat with reverence, worship, ETHPA to be honoured, to be accounted precious, APH to make heavy or dull, to give honour, make valuable, appraise, ETTAPH to be burdened
+and
+to
+god
+(relative)
+not
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+father
+him
+to be heavy, ETHPE to be burdened, PA to honour, treat with reverence, worship, ETHPA to be honoured, to be accounted precious, APH to make heavy or dull, to give honour, make valuable, appraise, ETTAPH to be burdened
+in
+gold
+and
+in
+silver, money
+and
+in
+bead, necklace stone, socket
+good, exceedingly, very
+and
+in
+desire, longing, object of desire
+and
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+to
+walled city, fortified place
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+upon, because
+god
+strange, foreign, alien
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+and
+to bear rule, to bear sway, AF to set in authority
+in
+much, many, great
+and
+earth, land
+to divide, to have a portion, PA to divide into many parts
+in
+price
+and
+in
+a moment, minute
+cutting off, end
+to beat, to strive, to contend, ETHPE to be in an uproar, to make great effort, ETHPA to strive, to fight against
+with
+him
+king
+(relative)
+the south
+and
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+upon, because
+him
+king
+(relative)
+the north wind, the north
+in
+yoke, pair, couple
+and
+in
+horseman
+and
+in
+ship, galley
+much, many, great
+and
+to enter, AF to bring in, to carry in
+in
+earth, land
+and
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+to
+earth, land
+(relative)
+Israel
+and
+much, many, great
+to kill, PA to kill many
+and
+these
+PA to deliver, to set free, pss.ptc. guiltless
+from
+hand, side
+him
+Edom
+and
+Moab
+and
+remnant, rest
+(relative)
+son
+Ammon
+and
+AF to hold out, to stretch out
+hand, side
+him
+in
+place, region
+and
+earth, land
+(relative)
+Egypt
+not
+to deliver, preserve, redeem, ranson
+from
+hand, side
+him
+and
+to bear rule, to bear sway, AF to set in authority
+house
+treasure, treasury
+(relative)
+gold
+and
+(relative)
+silver
+and
+(relative)
+whole
+desire, longing, object of desire
+Egypt
+and
+Libyan
+and
+Ethiopian
+to be
+in
+aid
+him
+and
+news, tidings, fame, report
+PE (ptc. pass. only), to hasten, ETHPE to be disquieted, to be afraid, AF to trouble, disquiet, to hasten, ESTAPH to make haste, to hasten, SAPH to hasten, impel, urge on, ESTAPH to make haste, hasten
+him
+from
+sunrise, east, Persian empire, Syria
+and
+from
+the north wind, the north
+and
+to go out, to issue, to proceed forth
+in
+rage, fury
+great
+to
+to lay waste, to destroy
+and
+to
+to perish, to come to naught. AF to destroy
+to
+much, many, great
+and
+to knock, strike, clash, play (a musical instrument), to fix a nail, to clap hands
+to
+him
+tent, tabernacle, habitation
+him
+in
+place, region
+smooth
+middle
+sea, lake
+to
+mountain
+and
+to guard, AF to put in a safe place
+holiness <deprecated>
+him
+and
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+a moment, minute
+cutting off, end
+him
+and
+not
+to be
+to
+him
+helpful, useful, advantageous, salutary
+in
+him
+in
+time, age, era
+that
+to arise APH raise up, place
+Michael
+messenger, angel
+great
+(relative)
+to visit, to command, to entreat, PA to give commission
+upon, because
+son
+people
+you
+and
+to be
+time, age, era
+(relative)
+distress, calamity, siege
+(relative)
+not
+to be
+as, such as, like
+him
+from
+day
+age, era, eternity
+and
+in
+him
+in
+time, age, era
+that
+to deliver, preserve, redeem, ranson
+from
+son
+people
+you
+whole
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+(relative)
+to write, ETHPE to be written, APH to write
+in
+writing, book, letters
+and
+much, many, great
+who, which, what
+(relative)
+to sleep
+in
+dust, earth
+to wake, to watch, PA to wake, to rouse, AF to wake, to awaken, ETTAPH to awake, to be awakened, aroused, excited, to be attentive, sober, to wake from the dead
+these
+to
+life
+age, era, eternity
+and
+these
+to
+loss, perdition, destruction, ruin
+and
+to
+shameful thing, shame, reproach
+(relative)
+companion, comrade
+them
+to
+age, era, eternity
+and
+to do, to make, to work
+good, exceedingly, very
+and
+understanding, capable
+to be light, shine, PA to bring to light, enlighten, make clear, ETHPA to receive light, to be enlightened, APH to give forth light, to shine brightly
+as, almost, about
+light, brightness
+him
+(relative)
+expanse of heaven, firmament
+and
+who, which, what
+(relative)
+to conquer, to be free from guilt, PA to grant victory, to pronounce innocent
+to
+much, many, great
+to be
+to be clear, transparent, careful of, PA to warn, admonish, EtPA (>ZDHR) to take care, watch over
+and
+to arise APH raise up, place
+as, almost, about
+star, planet
+to
+age, era, eternity
+and
+to
+age, era, eternity
+age, era, eternity
+and
+you
+then
+Daniel
+to seal, to sign, to ratify
+word, saying, matter, thing
+these
+and
+to cease, to keep silence, to hold his peace, PA to still, stop, silence, ETHPA to be silenced
+and
+to seal, to sign, to ratify
+writing, book, letters
+this
+while, until, unto
+a moment, minute
+cutting off, end
+to seek
+much, many, great
+and
+to increase, AF to make more, increase, add
+information, knowledge, doctrine
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+I
+Daniel
+and
+behold
+two
+other
+to arise APH raise up, place
+one
+in
+this
+lip, brim, edge
+him
+(relative)
+stream, river, canal
+and
+one
+in
+that
+and
+to say
+to
+man
+(relative)
+to clothe oneself, to put on (armour)
+garment
+(relative)
+honour, glory
+and
+to arise APH raise up, place
+to
+upon, because
+from
+water
+(relative)
+stream, river, canal
+until, as far as, unto, so that
+to
+when, at that time
+cutting off, end
+this
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+to
+man
+(relative)
+to clothe oneself, to put on (armour)
+garment
+(relative)
+honour, glory
+and
+to arise APH raise up, place
+to
+upon, because
+from
+water
+(relative)
+stream, river, canal
+(relative)
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+right-hand side
+him
+and
+left, left hand
+him
+at, with, towards, for
+heaven, ceiling, roof, eaves
+and
+to swear
+in
+alive
+age, era, eternity
+(relative)
+to
+a moment, minute
+a moment, minute
+and
+half, part, section
+a moment, minute
+and
+in
+a moment, minute
+(relative)
+PA to deliver, to set free, pss.ptc. guiltless
+hand, side
+(relative)
+whole
+people
+pure, holy
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+these
+whole
+them
+and
+I
+Daniel
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+and
+not
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+and
+to say
+lord
+me
+what, why, wherefore
+after, following
+these
+and
+to say
+to
+me
+to go, to walk
+Daniel
+because of
+(relative)
+to cover, PA to cover, to hide, to conceal, ETHPA to be covered, clothed
+they, them
+and
+to seal, to sign, to ratify
+word, saying, matter, thing
+while, until, unto
+a moment, minute
+cutting off, end
+to choose
+and
+be white
+and
+to try, to prove, to examine, ETHPE to be tried, to prove oneself
+much, many, great
+and
+to miss, to sin, PA to be arrogant, AF to cause to sin
+sinful
+and
+not
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+whole
+them
+sinful
+to do, to make, to work
+good, exceedingly, very
+then
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+and
+from
+time, age, era
+(relative)
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+offering
+to give
+defilement, abomination
+to
+damage
+day
+thousand
+and
+hundred
+and
+nine
+good, good things
+him
+to
+who, which, what
+(relative)
+PA to wait for, to look for, to expect
+(relative)
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+to
+day
+thousand
+and
+three
+hundred
+and
+three
+and
+five
+and
+you
+Daniel
+to go, to walk
+to
+breaking (of bread), morsel
+to rest, to stay quiet
+and
+to arise APH raise up, place
+to
+time, age, era
+you
+to
+the uttermost part, end, edge, border
+day
 wisdom
 (relative)
 male offspring
@@ -204167,3 +231616,7004 @@ blessed
 lord
 me
 Ephraim
+in
+hand, side
+god
+lord
+whole
+to write, ETHPE to be written, APH to write
+we
+speech, diction, discourse
+(relative)
+to do, to make, to work
+to
+blessed
+lord
+me
+Methodius
+bishop
+and
+witness
+upon, because
+succession
+(relative)
+king
+and
+upon, because
+latter end, extremity
+time, age, era
+this
+blessed
+to ask, ETHPE to excuse oneself, to decline, to eschew, PA to ask questions, ETHPA to be questioned, APH to lend, bestow
+from
+god
+(relative)
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+upon, because
+generation
+and
+upon, because
+reign, kingdom, majesty
+(relative)
+how, as, so that
+PA to hand down, to transmit, AF to bring, to lead
+from
+Adam
+and
+until, as far as, unto, so that
+to
+today
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+to
+him
+THE LORD
+one
+from
+strength, power, force
+him
+to
+mountain
+(relative)
+Sinjar
+and
+PA to show
+to
+him
+whole
+them
+generation
+even
+reign, kingdom, majesty
+one
+one
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+now then
+in
+head, top, summit
+word, saying, thing, affair
+us
+to
+familiar
+(relative)
+division
+when, although, because, while
+to go out, to issue, to proceed forth
+Adam
+and
+Eve
+from
+garden, park, paradise
+virgin, celibate, chaste, maiden
+to be
+two
+them
+and
+from
+after, following
+three
+year
+(relative)
+setting out, return, departure, version
+them
+(relative)
+from
+garden, park, paradise
+to know, discern, ETHPE to be known carnally, PA to make wise, to instruct, ETHPA to prove oneself wise
+Adam
+to
+Eve
+woman, wife
+him
+to conceive, to bear
+and
+to beget, to generate, ptc.f.emph de=JLDT>
+to
+Kain
+firstborn
+him
+(relative)
+Adam
+with
+Qelima
+sister, also possible as derv >X
+him
+with
+him
+and
+from
+after, following
+three
+year
+to conceive, to bear
+and
+to beget, to generate, ptc.f.emph de=JLDT>
+and
+Lebuda
+to
+Abel
+sister, also possible as derv >X
+him
+and
+in
+year
+hundred
+to
+life
+Adam
+to kill, PA to kill many
+him
+Kain
+to
+Abel
+brother
+him
+and
+PE ptc.pss. mourning, lamenting, ETHPE to mourn
+upon, because
+slaughter, murder
+him
+Adam
+hundred
+year
+and
+in
+year
+hundred
+and
+three
+(relative)
+thousand
+that
+first
+to beget, to generate, ptc.f.emph de=JLDT>
+Shit
+fair, good, lovely, pleasing
+man
+in
+form, shape, pattern
+him
+(relative)
+Adam
+and
+in
+year
+five
+hundred
+(relative)
+thousand
+that
+first
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+son
+and
+Kain
+(relative)
+to commit whoredom
+in
+women
+brother
+them
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+Adam
+to be evil, AF to do evil, to hurt
+to
+him
+good, exceedingly, very
+and
+in
+year
+six
+hundred
+(relative)
+thousand
+that
+first
+to rebel, to go beyond, to surpass
+women
+upon, because
+man
+them
+in
+the inside, inward parts
+camp, host
+(relative)
+house
+Kain
+and
+to be
+fornicatress, whoremongeress
+and
+(relative)
+not
+shame, modesty
+to enter, AF to bring in, to carry in
+to be
+man
+upon, because
+them
+and
+to commit whoredom
+to be
+in
+them
+clearly, openly
+and
+in
+year
+eight
+hundred
+to
+life
+him
+(relative)
+Adam
+to increase, AF to make more, increase, add
+intemperance
+and
+fornication, whoremongering
+in
+daughter
+Kain
+and
+to die, AF to put to death
+Adam
+in
+year
+nine
+hundred
+and
+three
+(relative)
+thousand
+that
+first
+immediately, at once
+to separate, to sever, to divide
+race, origin
+(relative)
+house
+Shit
+and
+generation
+him
+from
+son
+slayer
+and
+to lead, to guide, PA to lead, to guide, to drive
+Shit
+and
+to go up,to ascend
+with
+him
+to
+head, top, summit
+mountain
+(relative)
+garden, park, paradise
+to
+whole
+them
+generation
+him
+(relative)
+son
+him
+and
+(relative)
+son
+son
+him
+and
+to remain, to wait, to cease (with MN)
+Kain
+and
+generation
+him
+to
+under, beneath
+in
+plain, broad valley, level tract, expanse
+where, whither
+(relative)
+to kill, PA to kill many
+him
+to
+Abel
+brother
+him
+and
+in
+year
+four
+(relative)
+Jared
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+thousand
+first
+and
+in
+year
+three
+hundred
+and
+seven
+(relative)
+Jared
+in
+three
+hundred
+in
+thousand
+(relative)
+two
+to be
+these
+workman, craftsman
+(relative)
+sin
+(relative)
+to be
+son
+iniquity, injustice
+in
+the inside, inward parts
+camp, host
+(relative)
+son
+Kain
+Jubal
+and
+Tubal-Cain
+son
+him
+(relative)
+Lamech
+be blind
+that
+(relative)
+to kill, PA to kill many
+him
+to
+Kain
+and
+to enter, AF to bring in, to carry in
+adversary
+and
+to dwell, to stay, to inhabit
+in
+them
+and
+to ride, AF to make ride, to set
+and
+to do, to make, to work
+whole
+sort, kind, way, method, manner
+music
+harp
+and
+reed, flute, pipe, channel, canal
+and
+in
+year
+five
+hundred
+(relative)
+thousand
+(relative)
+two
+be insane
+man
+and
+women
+in
+the inside, inward parts
+camp, host
+(relative)
+son
+Kain
+and
+clearly, openly
+to run, to have free course, to be eager, AF to drive, to urge forward
+to be
+women
+after, following
+man
+and
+in
+form, shape, pattern
+(relative)
+horse
+these
+(relative)
+there is
+them
+in
+herd
+wild, fierce
+thus, so, such
+be insane
+to be
+women
+in
+intemperance
+fornication, whoremongering
+man
+as, almost, about
+one
+and
+women
+to do, to make, to work
+adversary
+nearness, war
+with
+son
+Shit
+and
+in
+end of a fixed period
+thousand
+that
+(relative)
+two
+to be
+flood, deluge
+(relative)
+water
+and
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+that
+work, making, thing made, meal
+(relative)
+two
+thousand
+year
+in
+one
+hour, moment, time, season
+and
+in
+year
+three
+hundred
+and
+two
+ten
+to
+life
+him
+Noah
+in
+two
+ten
+to
+generation
+thousand
+that
+(relative)
+three
+when, although, because, while
+to go out, to issue, to proceed forth
+Noah
+from
+ark, chest, coffer, coffin
+to build,PA to restore,to edify
+son
+Noah
+building
+in
+earth, land
+this
+town, village
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+name, appellation, title
+her
+(relative)
+town, village
+Temanon
+upon, because
+name, appellation, title
+eight
+breath, animal soul
+these
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+in
+age, era, eternity
+and
+in
+year
+seven
+hundred
+to
+life
+him
+Noah
+and
+hundred
+year
+(relative)
+thousand
+(relative)
+three
+to beget, to generate, ptc.f.emph de=JLDT>
+to
+Noah
+male offspring
+man
+in
+form, shape, pattern
+him
+as, almost, about
+image, figure, form
+him
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+name, appellation, title
+him
+Yonton
+and
+in
+year
+three
+hundred
+(relative)
+thousand
+(relative)
+three
+to give
+Noah
+gift, present, favour
+to
+Yonton
+male offspring
+him
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+him
+to
+sunrise, east, Persian empire, Syria
+and
+from
+after, following
+death
+him
+(relative)
+Noah
+in
+year
+seven
+hundred
+and
+nine
+(relative)
+thousand
+(relative)
+three
+to go up,to ascend
+son
+Noah
+from
+sunrise, east, Persian empire, Syria
+and
+to build,PA to restore,to edify
+to
+them
+tower, bulwark
+in
+plain, broad valley, level tract, expanse
+(relative)
+Sinador?
+Babel
+and
+there, yonder
+mix
+to be
+tongue, speech, language
+them
+and
+to scatter, PA to scatter abroad, disperse, ETHPA to be scattered abroad, dispersed
+to be
+upon, because
+nostril, countenance
+whole
+her
+earth, land
+and
+Yonton
+male offspring
+Noah
+to descend, PA to bring down, AF to cause to come down
+to
+him
+to
+sunrise, east, Persian empire, Syria
+and
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+to
+sea, lake
+that
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+fire
+sun
+that
+(relative)
+from
+him
+he
+to go up,to ascend
+sun
+from
+sunrise, east, Persian empire, Syria
+and
+to be
+dwelling, abode
+him
+there, yonder
+he
+this
+Yonton
+PE to accuse, to impeach, PA to receive, to accept, AF to be opposite, to face
+revelation, appearance, manifestation
+(relative)
+wisdom
+from
+god
+and
+he
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+first of all
+(relative)
+to be fit, suitable, ETHPA to be used to, familiar with
+in
+these
+(relative)
+running
+(relative)
+star, planet
+and
+at, with, towards, for
+him
+to descend, PA to bring down, AF to cause to come down
+Nimrod
+and
+he
+to journey, to continue, to emanate, to instruct, to chastise
+him
+in
+whole
+her
+wisdom
+and
+from
+him
+PE to accuse, to impeach, PA to receive, to accept, AF to be opposite, to face
+visitation, command
+(relative)
+to be
+king
+he
+however
+this
+Nimrod
+man
+to be
+from
+son
+Shem
+this
+to be
+king
+first
+upon, because
+whole
+her
+earth, land
+and
+in
+year
+seven
+hundred
+and
+nine
+and
+nine
+(relative)
+thousand
+(relative)
+three
+in
+year
+three
+(relative)
+reign, kingdom, majesty
+him
+(relative)
+Nimrod
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+man
+mighty, strong
+might, strength, force
+from
+son
+Japheth
+man, human, mortal
+wise, sensible
+and
+workman, craftsman
+skilled
+in
+information, knowledge, doctrine
+and
+to descend, PA to bring down, AF to cause to come down
+to
+sunrise, east, Persian empire, Syria
+at, with, towards, for
+Yonton
+male offspring
+Noah
+and
+to build,PA to restore,to edify
+to
+him
+city, town, province
+fair, good, lovely, pleasing
+and
+to dwell, to stay, to inhabit
+in
+her
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+name, appellation, title
+her
+Yonton
+and
+to be
+peace, safety, welfare
+middle
+reign, kingdom, majesty
+him
+(relative)
+Yonton
+to
+middle
+reign, kingdom, majesty
+him
+(relative)
+Nimrod
+until, as far as, unto, so that
+to
+today
+and
+middle
+reign, kingdom, majesty
+him
+(relative)
+Nimrod
+male offspring
+Shem
+to
+middle
+reign, kingdom, majesty
+him
+(relative)
+Poppinos
+male offspring
+Ham
+not
+to be
+peace, safety, welfare
+because of
+(relative)
+in
+day
+Nimrod
+to do, to make, to work
+nearness, war
+one
+with
+one
+son
+Japheth
+and
+son
+Ham
+to write, ETHPE to be written, APH to write
+to
+them
+Yonton
+male offspring
+Noah
+(relative)
+reign, kingdom, majesty
+namely
+(relative)
+son
+Japheth
+she
+to do, to make, to work
+to
+reign, kingdom, majesty
+(relative)
+son
+these
+two
+reign, kingdom, majesty
+to be
+in
+earth, land
+from
+first, former
+and
+then
+to lift up, to carry, to break up, to march
+beginning, opening
+whole
+them
+reign, kingdom, majesty
+(relative)
+people
+and
+from
+after, following
+reign, kingdom, majesty
+him
+(relative)
+Nimrod
+when, although, because, while
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+thousand
+(relative)
+three
+and
+in
+year
+seven
+(relative)
+Reu
+(relative)
+there is
+her
+year
+three
+and
+nine
+(relative)
+thousand
+that
+(relative)
+four
+to do, to make, to work
+nearness, war
+two
+them
+reign, kingdom, majesty
+one
+and
+one
+and
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+reign, kingdom, majesty
+him
+(relative)
+house
+Nimrod
+to
+reign, kingdom, majesty
+(relative)
+Egyptian
+and
+PA to hand down, to transmit, AF to bring, to lead
+reign, kingdom, majesty
+(relative)
+Babylonian
+from
+seed, offspring
+him
+(relative)
+Nimrod
+man
+until, as far as, unto, so that
+to
+reign, kingdom, majesty
+him
+(relative)
+Hormizd
+this
+to take, to receive
+to
+him
+woman, wife
+from
+generation
+him
+(relative)
+Ham
+when, although, because, while
+to die, AF to put to death
+Hormizd
+to take, to receive
+to
+him
+Azri
+male offspring
+him
+to
+mother
+him
+in
+women
+and
+to beget, to generate, ptc.f.emph de=JLDT>
+to
+him
+from
+her
+Hormizd
+this
+to gather together, to collect, PA to assemble, to call together
+to
+him
+strength, power, force
+much, many, great
+and
+to go up,to ascend
+upon, because
+reign, kingdom, majesty
+(relative)
+son
+Ham
+and
+to take captive, to lead away captive
+and
+to lay waste, to destroy
+and
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+in
+fire
+to
+place, region
+whole
+them
+(relative)
+setting of sun, west
+and
+in
+year
+two
+(relative)
+reign, kingdom, majesty
+him
+(relative)
+Kudros
+male offspring
+Hormizd
+to gather together, to collect, PA to assemble, to call together
+reign, kingdom, majesty
+(relative)
+Babylonian
+and
+to be
+to be
+in
+numbering, number, reckoning
+three
+hundred
+and
+ten
+thousand
+a foot-soldier, infantry
+(relative)
+to carry
+to be
+whole
+them
+staff,rod,sceptre
+in
+only, alone, sole
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+Kudros
+because of
+them
+to laugh, to be merry, to dance
+and
+to leave, to leave behind, to dismiss, to remit
+they, them
+(relative)
+to descend, PA to bring down, AF to cause to come down
+and
+to come
+until, as far as, unto, so that
+to
+Tigris
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+upon, because
+them
+king
+might, strength, force
+(relative)
+Persian
+and
+man
+mighty, strong
+might, strength, force
+when, although, because, while
+to ride, AF to make ride, to set
+elephant, ivory
+and
+to go up,to ascend
+upon, because
+them
+and
+to lay waste, to destroy
+they, them
+and
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+from
+them
+thousand
+one
+and
+when, although, because, while
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+thousand
+that
+(relative)
+four
+(relative)
+there is
+her
+year
+ten
+and
+five
+(relative)
+Hormizd
+in
+her
+in
+year
+that
+first
+(relative)
+to enter, AF to bring in, to carry in
+in
+her
+thousand
+(relative)
+five
+to descend, PA to bring down, AF to cause to come down
+Shamshasnakar
+king
+sunrise, east, Persian empire, Syria
+from
+generation
+him
+(relative)
+Yonton
+male offspring
+Noah
+and
+to lay waste, to destroy
+from
+Euphrates
+and
+until, as far as, unto, so that
+to
+Azerbaijan
+six
+and
+seven
+city, town, province
+and
+place, region
+whole
+them
+(relative)
+circle, surroundings
+them
+and
+to enter, AF to bring in, to carry in
+to
+three
+them
+reign, kingdom, majesty
+(relative)
+Indian
+and
+to lay waste, to destroy
+and
+to take captive, to lead away captive
+and
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+in
+fire
+and
+to go out, to issue, to proceed forth
+to
+desert, wilderness
+and
+to lay waste, to destroy
+and
+to take captive, to lead away captive
+to
+camp, host
+(relative)
+son
+Ishmael
+male offspring
+Hagar
+Egyptian
+handmaid
+her
+(relative)
+Sarah
+woman, wife
+him
+(relative)
+Abraham
+and
+to flee, to avoid
+from
+desert, wilderness
+(relative)
+Yathrib
+and
+to enter, AF to bring in, to carry in
+to
+the inside, inward parts
+earth, land
+(relative)
+peace
+and
+to do, to make, to work
+nearness, war
+with
+king
+(relative)
+people
+and
+to lay waste, to destroy
+they, them
+and
+to lay waste, to destroy
+and
+to take captive, to lead away captive
+and
+to do, to make, to work
+to
+whole
+them
+reign, kingdom, majesty
+(relative)
+people
+and
+to be
+whole
+her
+earth, land
+(relative)
+promise, counsel, property
+under, beneath
+subjection, obedience, tyranny
+them
+and
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+earth, land
+from
+them
+and
+from
+camp, host
+them
+and
+as, almost, about
+locust, parsnip
+PA to go, to walk
+to be
+nakedly
+and
+to eat, to consume
+to be
+flesh, body
+in
+dish, basin, vessel
+flesh, body
+and
+to drink, to imbibe
+blood, bloodshed
+(relative)
+life, vitality, living creature
+and
+when, although, because, while
+to break up, to subjugate, to subdue
+her
+son
+Ishmael
+and
+to do, to make, to work
+her
+to
+whole
+her
+earth, land
+and
+to lay waste, to destroy
+city, town, province
+and
+towns
+and
+to bear rule, to bear sway, AF to set in authority
+in
+whole
+them
+reign, kingdom, majesty
+(relative)
+people
+and
+in
+conveyance, vessel, mount
+(relative)
+wood
+to fly, to float, to pervade, PA to flutter, to squander, ETHPA to be squandered, APH to cause to fly, to diffuse, ETHTAPH to be allowed to fly
+to be
+to
+upon, because
+from
+wave, billow
+him
+(relative)
+sea, lake
+to go up,to ascend
+to
+place, region
+(relative)
+setting of sun, west
+and
+to come, to arrive at, to happen, to befall, PA to bring, to come, to arrive, to reach, to attain
+until, as far as, unto, so that
+to
+Rome
+great
+and
+until, as far as, unto, so that
+to
+Illyria?
+and
+to
+Egypt
+and
+to
+Afnasolius?
+and
+Aluza
+great
+(relative)
+upwards,above
+from
+Rome
+and
+when, although, because, while
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+to
+earth, land
+six
+year
+and
+to do, to make, to work
+in
+her
+as, almost, about
+will, desire
+them
+from
+after, following
+eight
+week
+and
+half, part, section
+week
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+whole
+them
+reign, kingdom, majesty
+(relative)
+people
+and
+be insane
+and
+to grow warm, PA to warm, ETHPA to be warmed, ETHPALP to suffer from ulcer, PAI to enrage, excite with drink, ETHPAI to rage, burn with desire, APH to make warm, cause inflammation
+in
+pride
+(relative)
+elevation, height, pride
+them
+and
+to be
+to
+them
+servant
+king
+(relative)
+Hittite
+and
+king
+(relative)
+Hiqqite?
+and
+king
+(relative)
+Amorite
+and
+king
+(relative)
+Jebusite
+and
+king
+(relative)
+Girgashite
+and
+king
+(relative)
+Canaanite
+and
+king
+(relative)
+Ammonite
+and
+king
+(relative)
+Philistine
+and
+to be
+in
+that
+time, age, era
+these
+leader, ruler, judge
+four
+tyrant, lord, ruler, rebel
+son
+her
+(relative)
+Muny
+Arab
+Oreb
+and
+Zeeb
+and
+Zebah
+and
+Zalmunna
+and
+when, although, because, while
+to do, to make, to work
+to
+them
+redemption, ransom, salvation
+to
+Israelite
+in
+hand, side
+Moses
+and
+Aaron
+from
+subjection, obedience, tyranny
+(relative)
+Egyptian
+and
+when, although, because, while
+to enter, AF to bring in, to carry in
+to
+earth, land
+(relative)
+repose
+and
+to yoke
+in
+yoke, servitude
+(relative)
+servitude
+to double
+to
+rebellion, revolt, instruction, correction
+(relative)
+son
+Ishmael
+these
+Midianite
+PE only part.pass dim, SHAPH to glorify, ESHTAPH to boast
+to be
+and
+when, although, because, while
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+god
+distress, calamity, siege
+PA to harden, AF to make grievous
+(relative)
+to be pressing, to straiten, to hem in ETPHE be straight, narrow, tormented (with illness, hunger, thirst)
+to
+them
+to do, to make, to work
+to
+them
+god
+redemption, ransom, salvation
+and
+this
+to lay waste, to destroy
+they, them
+to
+them
+and
+to
+leader, ruler, judge
+them
+and
+to drive away, ETHPE to be driven away
+and
+to go out, to issue, to proceed forth
+they, them
+from
+the inside, inward parts
+peace
+to
+desert, wilderness
+(relative)
+Yathrib
+and
+these
+(relative)
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+from
+them
+to give
+right-hand side
+(relative)
+peace, safety, welfare
+to
+son
+Israel
+and
+to go out, to issue, to proceed forth
+to
+them
+to
+desert, wilderness
+this
+inner, internal, further, remote
+seven
+generation, family, race, tribe
+but, but yet, however, nevertheless
+then
+PE only ptc pss ready, prepared, future, PA to make ready, to bring to pass
+they, them
+(relative)
+to go out, to issue, to proceed forth
+and
+to lay waste, to destroy
+earth, land
+and
+to bear rule, to bear sway, AF to set in authority
+in
+her
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+place, region
+and
+pass, passage
+and
+entrance, ingress
+peace
+from
+Egypt
+and
+until, as far as, unto, so that
+to
+Cush (Ethiopia)
+and
+from
+Euphrates
+and
+until, as far as, unto, so that
+to
+India
+and
+from
+Tigris
+and
+until, as far as, unto, so that
+to
+sea, lake
+that
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+fire
+sun
+and
+reign, kingdom, majesty
+him
+(relative)
+Yonton
+male offspring
+Noah
+and
+from
+the north wind, the north
+and
+until, as far as, unto, so that
+to
+Rome
+great
+and
+until, as far as, unto, so that
+to
+sea, lake
+great
+(relative)
+Pontus
+because of
+(relative)
+to double
+yoke, servitude
+them
+upon, because
+subjection, obedience, tyranny
+(relative)
+whole
+them
+people
+and
+not
+there is
+people
+or, either
+reign, kingdom, majesty
+(relative)
+under, beneath
+heaven, ceiling, roof, eaves
+(relative)
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+with
+her
+not
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+her
+and
+from
+after, following
+ten
+week
+(relative)
+year
+these
+and
+even
+they
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+from
+reign, kingdom, majesty
+(relative)
+Roman
+and
+to
+her
+to do, to make, to work
+because of
+(relative)
+she
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+whole
+them
+reign, kingdom, majesty
+and
+she
+not
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+from
+one
+from
+them
+because of
+(relative)
+she
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+truly, verily, indeed
+arms, armour
+that
+not
+to conquer, to be free from guilt, PA to grant victory, to pronounce innocent
+(relative)
+to
+whole
+to conquer, to be free from guilt, PA to grant victory, to pronounce innocent
+and
+from
+here, hitherto, henceforward
+to be stupid, to act foolishly, ETHPE to be known, PA to make to understand, ETHPA to inspect, to be capable, AF to act foolishly, to offend
+in
+succession
+(relative)
+reign, kingdom, majesty
+and
+immediately, at once
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+to
+you
+truth
+and
+he
+PA to show
+to
+you
+breath, animal soul
+him
+(relative)
+not
+veil
+and
+(relative)
+not
+error, mistake, false worship
+and
+until, as far as, unto, so that
+to
+Hadarzereq
+king
+(relative)
+mighty, strong
+(relative)
+son
+Nimrod
+these
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+to be
+reign, kingdom, majesty
+(relative)
+Babel
+and
+from
+Hadarzereq
+and
+until, as far as, unto, so that
+to
+Sassan
+elderly
+to counsel, to promise, to reign
+Persian
+and
+from
+Sassan
+and
+until, as far as, unto, so that
+to
+Piruz
+king
+king
+and
+from
+Seleucia
+and
+until, as far as, unto, so that
+to
+Qtesiphon
+and
+from
+Piruz
+and
+until, as far as, unto, so that
+to
+Sennacherib
+to
+Yanqat
+Kurdish
+to beget, to generate, ptc.f.emph de=JLDT>
+to
+him
+from
+her
+Adrammelek
+and
+Sharezed
+and
+Esarhaddon
+and
+to kill, PA to kill many
+him
+these
+two
+son
+to
+father
+them
+and
+they
+to flee, to avoid
+to
+earth, land
+(relative)
+Kurdish
+and
+to counsel, to promise, to reign
+Esarhaddon
+male offspring
+him
+in
+Babel
+exchange
+Sennacherib
+father
+him
+and
+after, following
+him
+Nebuchadnezzar
+and
+to be
+from
+father
+Ludite
+and
+from
+queen
+Sheba
+and
+when, although, because, while
+to enter, AF to bring in, to carry in
+Sennacherib
+(relative)
+to do, to make, to work
+nearness, war
+with
+king
+(relative)
+Indian
+to enter, AF to bring in, to carry in
+until, as far as, unto, so that
+to
+Jabba?
+and
+to lay waste, to destroy
+in
+her
+place, region
+much, many, great
+and
+to go out, to issue, to proceed forth
+with
+him
+male offspring
+him
+and
+to be
+great
+to believe
+and
+in
+hand, side
+wisdom
+him
+and
+manliness, fortitude, heroism
+him
+to give
+to
+him
+reign, kingdom, majesty
+(relative)
+Babel
+and
+to take, to receive
+to
+him
+woman, wife
+from
+Media
+to
+Hormizd
+city, town, province
+and
+Darius
+to take, to receive
+to
+him
+woman, wife
+to
+Rod
+Persian
+that
+(relative)
+from
+her
+to beget, to generate, ptc.f.emph de=JLDT>
+Cyrus
+Persian
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+this hour
+as, almost, about
+this
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+them
+reign, kingdom, majesty
+(relative)
+sunrise, east, Persian empire, Syria
+one
+from
+one
+that
+(relative)
+Babylonian
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+from
+that
+(relative)
+Mede
+and
+that
+(relative)
+Mede
+from
+that
+(relative)
+Persian
+and
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+that
+(relative)
+Babylonian
+to
+that
+(relative)
+Ethiopian
+and
+(relative)
+Sheba
+and
+(relative)
+Saba
+and
+to
+reign, kingdom, majesty
+(relative)
+people
+from
+sea, lake
+until, as far as, unto, so that
+to
+Euphrates
+side
+from
+reign, kingdom, majesty
+(relative)
+house
+David
+and
+to
+that
+(relative)
+house
+David
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+reign, kingdom, majesty
+(relative)
+Babel
+in
+hand, side
+Nebuchadnezzar
+this
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+Hebrew
+and
+to
+Egyptian
+and
+Darius
+Mede
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+Indian
+and
+to
+Luzite
+and
+Cyrus
+Persian
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+Thracian
+and
+to do, to make, to work
+restitution
+to
+son
+Israel
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+this hour
+upon, because
+these
+reign, kingdom, majesty
+four
+(relative)
+as, almost, about
+this
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+one
+in
+one
+that
+(relative)
+Ethiopian
+in
+that
+(relative)
+Macedonian
+and
+that
+(relative)
+Macedonian
+and
+that
+(relative)
+Macedonian
+in
+that
+(relative)
+Greek
+and
+that
+(relative)
+Greek
+in
+that
+(relative)
+Roman
+and
+these
+to be
+four
+breath, wind, spirit
+heaven, ceiling, roof, eaves
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+Daniel
+(relative)
+to gush out
+to be
+to
+sea, lake
+great
+Philippus
+father
+him
+(relative)
+king
+king
+Alexander
+there is
+him
+to be
+Macedonian
+and
+to take, to receive
+to
+him
+Philippus
+woman, wife
+who, which, what
+to
+Cushat
+daughter
+Pil
+king
+(relative)
+Ethiopian
+and
+from
+her
+to beget, to generate, ptc.f.emph de=JLDT>
+Alexander
+king
+Macedonian
+(relative)
+Greek
+this
+to build,PA to restore,to edify
+to
+Alexandria
+great
+and
+to counsel, to promise, to reign
+in
+her
+two
+ten
+year
+he
+this
+to descend, PA to bring down, AF to cause to come down
+to
+sunrise, east, Persian empire, Syria
+and
+to kill, PA to kill many
+him
+to
+Darius
+Mede
+and
+to break up, to subjugate, to subdue
+place, region
+much, many, great
+and
+to go round, to encompass, to roll up, to wrap round, AF to make to turn round
+in
+earth, land
+and
+to descend, PA to bring down, AF to cause to come down
+to
+sunrise, east, Persian empire, Syria
+and
+to go, to walk
+until, as far as, unto, so that
+to
+sea, lake
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+fire
+sun
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+there, yonder
+people
+PA to pollute, ETHPA to be defiled
+and
+defame, disfigure
+in
+sight, glance, appearance, visit
+these
+(relative)
+there is
+them
+son
+Japheth
+and
+when, although, because, while
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+they, them
+(relative)
+who, which, what
+defilement, abomination
+to visit, to inspect, to deal, to perform, to act
+to be
+(relative)
+to eat, to consume
+to be
+creep
+her
+(relative)
+earth, land
+mouse
+and
+dog
+and
+kitten
+to eat, to consume
+to be
+and
+not
+to wrap, PA to enshroud
+to be
+and
+to bury, PA to bury many, to heap up
+to die, AF to put to death
+them
+and
+new-born babe
+these
+(relative)
+miscarry
+to be
+women
+as, almost, about
+something, aught
+to be left over, to gain, AF to have over
+to eat, to consume
+to be
+and
+when, although, because, while
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+Alexander
+defilement, abomination
+them
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to
+god
+to
+aid
+him
+and
+to gather together, to collect, PA to assemble, to call together
+and
+to go out, to issue, to proceed forth
+they, them
+to
+them
+and
+to
+women
+them
+and
+to
+son
+them
+and
+to
+whole
+them
+camp, host
+them
+to go out, to issue, to proceed forth
+they, them
+from
+the inside, inward parts
+sunrise, east, Persian empire, Syria
+and
+to enter, AF to bring in, to carry in
+and
+to shut in, to besiege, ETHPE to shut oneself up, to be besieged
+they, them
+from
+the uttermost part, end, edge, border
+the north wind, the north
+to
+the inside, inward parts
+from
+entrance, ingress
+that
+(relative)
+there is
+him
+gate, door, entrance
+him
+(relative)
+age, era, eternity
+from
+the north wind, the north
+and
+not
+there is
+entrance, ingress
+other, next
+or, either
+going forth, departure
+from
+the uttermost part, end, edge, border
+age, era, eternity
+from
+sunrise, east, Persian empire, Syria
+to
+setting of sun, west
+and
+to incline, to be prone to, PA to pray, AF to reach out
+Alexander
+king
+before
+god
+and
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+him
+god
+and
+to visit, to command, to entreat, PA to give commission
+to
+them
+god
+to
+mountain
+these
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+son
+the north wind, the north
+and
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+one
+at, with, towards, for
+one
+until, as far as, unto, so that
+to
+two
+ten
+forearm, cubit
+in
+only, alone, sole
+and
+to do, to make, to work
+gate, door, entrance
+(relative)
+brass
+and
+to besmear, to anoint, PA to measure, to proportion
+him
+from
+to
+the inside, inward parts
+<magic substance>
+(relative)
+if, O!
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+him
+iron
+as, almost, about
+(relative)
+to open, to unlock, to admit
+him
+and
+not
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+to
+him
+and
+if, O!
+to be willing, to wish, to seek to
+(relative)
+in
+fire
+solve, dissolve
+him
+to be put out, quenched, ETHPE same, PA to extinguish, ETHPA same as PE, APH same as PA
+to
+her
+to
+fire
+(relative)
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+him
+because of
+(relative)
+nature
+him
+(relative)
+<magic substance>
+not
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+from
+iron
+and
+even
+not
+from
+operation
+(relative)
+demon
+and
+even
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+fire
+(relative)
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+something, aught
+if, O!
+to draw near, to touch, PA to bring, to offer, ETHPA to be brought near, to touch, AF to join battle
+to
+him
+because of
+(relative)
+in
+whole
+her
+evil, harm, wickedness, envy
+(relative)
+sorcery
+to be fit, suitable, ETHPA to be used to, familiar with
+to be
+these
+people
+impure
+(relative)
+to shut in, to besiege, ETHPE to shut oneself up, to be besieged
+to
+the inside, inward parts
+from
+him
+and
+in
+hand, side
+these
+two
+matter, possession
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+her
+to
+whole
+her
+operation
+them
+(relative)
+not
+in
+hand, side
+iron
+and
+not
+in
+hand, side
+operation
+(relative)
+devil
+to open, to unlock, to admit
+in
+nostril, countenance
+them
+and
+to go out, to issue, to proceed forth
+and
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+son
+man, human, mortal
+and
+PA to profane, to pollute, to defile, ETHPA to be defiled, polluted
+earth, land
+but, but yet, however, nevertheless
+then
+in
+latter end, extremity
+age, era, eternity
+as, almost, about
+word, saying, thing, affair
+him
+(relative)
+prophet
+Ezekiel
+(relative)
+PA to prophesy, ETHPA to prophesy, to behave as a prophet
+upon, because
+them
+and
+to say
+(relative)
+in
+latter end, extremity
+(relative)
+time, age, era
+in
+the uttermost part, end, edge, border
+age, era, eternity
+to go out, to issue, to proceed forth
+(relative)
+house
+Gog
+and
+Magog
+to
+earth, land
+(relative)
+Israel
+and
+these
+there is
+them
+people
+(relative)
+to shut in, to besiege, ETHPE to shut oneself up, to be besieged
+Alexander
+to
+the inside, inward parts
+from
+gate, door, entrance
+the north wind, the north
+Gog
+and
+Magog
+and
+Joel
+and
+Agig
+and
+Ashkenaz
+and
+Riphath
+and
+Put
+and
+Ludite
+and
+Hun
+and
+Persian
+and
+Diklah
+and
+Teblite?
+and
+Darmatian?
+and
+Kukabite?
+and
+Amratite?
+and
+Garmidamite?
+and
+to eat, to consume
+son
+man, human, mortal
+these
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+dog
+male offspring
+man, human, mortal
+and
+Thracian
+and
+Alanian
+and
+Physilite?
+and
+Dashite?
+and
+Saltarian?
+these
+ten
+and
+two
+reign, kingdom, majesty
+to shut in, to besiege, ETHPE to shut oneself up, to be besieged
+to
+the inside, inward parts
+from
+gate, door, entrance
+the north wind, the north
+and
+when, although, because, while
+to die, AF to put to death
+Alexander
+king
+first
+(relative)
+Greek
+because of
+(relative)
+not
+to take, to receive
+woman, wife
+and
+not
+to be
+to
+him
+son
+to counsel, to promise, to reign
+from
+after, following
+him
+these
+great
+might, strength, force
+[possessive]
+him
+and
+Cushat
+mother
+him
+Alexander
+to turn, to change, to move
+to
+house
+father
+her
+to
+Cush (Ethiopia)
+and
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+Buz
+king
+that
+(relative)
+to build,PA to restore,to edify
+her
+to
+Byzantia
+city, town, province
+(relative)
+reign, kingdom, majesty
+(relative)
+in
+the inside, inward parts
+sea, lake
+to
+Germanicus
+great
+might, strength, force
+at, with, towards, for
+Pil
+king
+(relative)
+Ethiopian
+and
+to do, to make, to work
+with
+him
+peace
+and
+to write, ETHPE to be written, APH to write
+to
+him
+because of
+daughter
+him
+mother
+him
+(relative)
+Alexander
+as, almost, about
+(relative)
+to take, to receive
+her
+to
+him
+in
+women
+and
+to do, to make, to work
+her
+queen
+and
+when, although, because, while
+PE to accuse, to impeach, PA to receive, to accept, AF to be opposite, to face
+king
+(relative)
+Ethiopian
+letter, epistle
+(relative)
+in
+hand, side
+Germanicus
+great
+might, strength, force
+him
+(relative)
+Buz
+king
+(relative)
+Greek
+when, although, because, while
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+gift, present, favour
+and
+honour, glory
+(relative)
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+to
+him
+to rejoice, PA to gladden, to congratulate
+good, exceedingly, very
+and
+to take, to receive
+immediately, at once
+even
+he
+Pil
+from
+good, good things
+reign, kingdom, majesty
+(relative)
+Ethiopian
+and
+even
+to
+Cushat
+daughter
+him
+with
+him
+and
+to go up,to ascend
+to
+Byzantia
+at, with, towards, for
+Buz
+king
+with
+three
+thousand
+Ethiopian
+and
+PE to accuse, to impeach, PA to receive, to accept, AF to be opposite, to face
+from
+Buz
+king
+to
+outside area
+from
+sea, lake
+(relative)
+Chalcedon
+cheerfully
+and
+gift, present, favour
+to give
+to
+might, strength, force
+(relative)
+to enter, AF to bring in, to carry in
+with
+him
+to
+the inside, inward parts
+Byzantia
+and
+honour, glory
+great, grown up, nobles, chiefs
+and
+gift, present, favour
+as, almost, about
+hand, side
+(relative)
+king
+to give
+to
+him
+and
+to take, to receive
+her
+king
+(relative)
+Greek
+to
+Cushat
+daughter
+Pil
+king
+(relative)
+Ethiopian
+and
+to beget, to generate, ptc.f.emph de=JLDT>
+to
+him
+from
+her
+daughter
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+hearing, report, narration
+her
+Byzantia
+upon, because
+name, appellation, title
+city, town, province
+(relative)
+to build,PA to restore,to edify
+and
+to
+Byzantia
+to take, to receive
+her
+in
+women
+Romulus
+king
+(relative)
+Roman
+and
+because of
+(relative)
+fair, good, lovely, pleasing
+to be
+good, exceedingly, very
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+her
+and
+in
+him
+(relative)
+man
+to be
+to stretch out, to extend, to reach out
+and
+not
+there is
+to be
+in
+him
+craft, cunning, acuteness, subtility
+even
+not
+swift, light, rapid, small, few
+to write, ETHPE to be written, APH to write
+her
+to
+Rome
+and
+to give
+her
+gift, present, favour
+to
+Byzantia
+in
+dowry paid to father of bride
+(relative)
+Byzantia
+and
+when, although, because, while
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+this
+in
+house
+chief
+(relative)
+to be
+in
+Rome
+to be
+row, clamour, resounding
+great
+upon, because
+this
+and
+to beget, to generate, ptc.f.emph de=JLDT>
+to
+Romulus
+from
+Byzantine
+daughter
+Buz
+king
+(relative)
+Byzantia
+that
+(relative)
+to beget, to generate, ptc.f.emph de=JLDT>
+from
+Cushat
+mother
+him
+(relative)
+Alexander
+king
+three
+time, age, era
+Romulus
+and
+Urbanus
+and
+Claudius
+and
+to counsel, to promise, to reign
+Romulus
+in
+Rome
+exchange
+Romulus
+and
+Urbanus
+to counsel, to promise, to reign
+in
+Byzantine
+city, town, province
+(relative)
+mother
+him
+and
+Claudius
+to counsel, to promise, to reign
+in
+Alexandria
+city, town, province
+reign, kingdom, majesty
+him
+(relative)
+father
+him
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+seed, offspring
+her
+(relative)
+Cushat
+queen
+daughter
+Pil
+king
+(relative)
+Ethiopian
+reign, kingdom, majesty
+(relative)
+Macedonian
+and
+(relative)
+Roman
+and
+(relative)
+Greek
+from
+seed, offspring
+her
+(relative)
+Cushat
+daughter
+Pil
+until, as far as, unto, so that
+to
+age, era, eternity
+because of
+reign, kingdom, majesty
+(relative)
+Greek
+that
+(relative)
+there is
+her
+from
+seed, offspring
+(relative)
+Ethiopian
+she
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+hand, side
+to
+god
+in
+latter, last
+time, age, era
+when, although, because, while
+to look, to gaze, to behold
+then
+blessed
+David
+in
+eye
+shining
+(relative)
+breath, wind, spirit
+(relative)
+god
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+from
+Cushat
+daughter
+Pil
+king
+(relative)
+Ethiopian
+PE only ptc pss ready, prepared, future, PA to make ready, to bring to pass
+(relative)
+PA to hand down, to transmit, AF to bring, to lead
+reign, kingdom, majesty
+(relative)
+Greek
+but, but yet, however, nevertheless
+then
+much, many, great
+brother
+from
+son
+an assembly, congregation, company, church
+to suppose, to believe, PA to hope, to trust, to place trust, to announce, PAI to bear, to endure, AF to think, to suppose
+(relative)
+upon, because
+reign, kingdom, majesty
+(relative)
+Ethiopian
+to say
+blessed
+David
+word, saying, thing, affair
+this
+and
+who, which, what
+(relative)
+these
+to feed, to rule, to be contented, ETHPE to feed, to think, PA to please, to appease, to heal
+to wander, to err, to go astray, to be missing
+to
+them
+upon, because
+this
+however
+reign, kingdom, majesty
+(relative)
+Greek
+(relative)
+there is
+her
+from
+seed, offspring
+her
+(relative)
+Cushat
+and
+she
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+to
+that
+(relative)
+to put, to lay up, to constitute
+in
+middle, centre
+(relative)
+there is
+him
+cross
+pure, holy
+upon, because
+her
+then
+upon, because
+this
+to say
+blessed
+David
+(relative)
+Cush (Ethiopia)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+hand, side
+to
+god
+not
+there is
+however
+people
+or, either
+reign, kingdom, majesty
+(relative)
+under, beneath
+heaven, ceiling, roof, eaves
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+(relative)
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+reign, kingdom, majesty
+(relative)
+Christian
+how much, how many
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+refuge
+in
+cross
+alive
+that
+(relative)
+to fasten
+in
+middle, centre
+her
+(relative)
+earth, land
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+might, strength, force
+her
+to
+height, breadth, size
+and
+to
+the deep, depth, low-lying country
+even
+bar, bolt
+(relative)
+Sheol, the pit, lower regions
+these
+(relative)
+there is
+them
+tyrant, lord, ruler, rebel
+(relative)
+impiety
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+(relative)
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+this
+reign, kingdom, majesty
+(relative)
+Christian
+as, almost, about
+daughter
+voice, sound
+him
+true
+(relative)
+saviour, deliverer
+us
+(relative)
+to say
+at, with, towards, for
+Shimon, Simeon
+(relative)
+who, which, what
+he
+might, strength, force
+or, either
+reign, kingdom, majesty
+or, either
+people
+(relative)
+there is
+under, beneath
+heaven, ceiling, roof, eaves
+(relative)
+strong, mighty, powerful
+and
+to wax strong, to prevail
+might, strength, force
+him
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+(relative)
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+might, strength, force
+him
+great
+(relative)
+cross
+pure, holy
+that
+(relative)
+in
+him
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+refuge
+reign, kingdom, majesty
+(relative)
+Greek
+(relative)
+there is
+her
+(relative)
+Roman
+to write, ETHPE to be written, APH to write
+to be
+to
+them
+to
+Thessalonian
+in
+letter, epistle
+(relative)
+second
+blessed
+Paul
+when, although, because, while
+to be clear, transparent, careful of, PA to warn, admonish, EtPA (>ZDHR) to take care, watch over
+to
+them
+(relative)
+not
+PE (ptc. pass. only), to hasten, ETHPE to be disquieted, to be afraid, AF to trouble, disquiet, to hasten, ESTAPH to make haste, to hasten, SAPH to hasten, impel, urge on, ESTAPH to make haste, hasten
+from
+hearing, report, narration
+swift, light, rapid, small, few
+and
+false, vain, deceitful
+(relative)
+behold
+namely
+arrive
+to
+him
+day
+him
+(relative)
+lord
+us
+Jesus, Joshua
+(relative)
+how much, how many
+namely
+reign, kingdom, majesty
+this
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+refuge
+stability, station, statute, covenant
+in
+middle, centre
+male offspring
+him
+(relative)
+loss, perdition, destruction, ruin
+not
+to uncover, PA to reveal, to lead or go into captivity
+that
+something, aught
+however
+(relative)
+there is
+in
+middle, centre
+priesthood, office of priest
+there is
+him
+and
+reign, kingdom, majesty
+and
+cross
+pure, holy
+and
+she
+reign, kingdom, majesty
+(relative)
+Christian
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+whole
+them
+reign, kingdom, majesty
+(relative)
+earth, land
+and
+in
+her
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+and
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+whole
+head, top, summit
+and
+whole
+power, authority, right, rule, government, ruler, commander
+and
+whole
+them
+with
+her
+PA to bereave, deprive
+and
+from
+her
+to be unequal, to be powerless, to owe, to be guilty, PA to prevail, to cause to take an oath, condemn
+and
+in
+her
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+and
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+in
+whole
+her
+earth, land
+one
+head, top, summit
+one
+power, authority, right, rule, government, ruler, commander
+what
+(relative)
+to uncover, PA to reveal, to lead or go into captivity
+male offspring
+him
+(relative)
+loss, perdition, destruction, ruin
+if, O!
+not
+if, O!
+reign, kingdom, majesty
+(relative)
+Greek
+(relative)
+she
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+hand, side
+to
+god
+as, almost, about
+daughter
+voice, sound
+him
+(relative)
+to send, PA to strip, to despoil
+(relative)
+to say
+and
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+whole
+head, top, summit
+and
+whole
+power, authority, right, rule, government, ruler, commander
+and
+whole
+might, strength, force
+then
+he
+male offspring
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+he
+reign, kingdom, majesty
+(relative)
+Christian
+to
+god
+father
+to trickle down, to be dragged away, PA to provoke, to incite
+however
+king
+(relative)
+people
+much, many, great
+with
+reign, kingdom, majesty
+(relative)
+mighty, strong
+and
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+(relative)
+to conquer, to be free from guilt, PA to grant victory, to pronounce innocent
+her
+even
+not
+reign, kingdom, majesty
+that
+(relative)
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+Egypt
+and
+to kill, PA to kill many
+to
+three
+and
+one
+reign, kingdom, majesty
+(relative)
+people
+and
+to
+two
+great
+reign, kingdom, majesty
+(relative)
+Amorite
+to
+Sihon
+and
+to
+Og
+and
+to
+whole
+them
+tyrant, lord, ruler, rebel
+(relative)
+Philistine
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+(relative)
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+reign, kingdom, majesty
+(relative)
+Babel
+and
+reign, kingdom, majesty
+(relative)
+Roman
+and
+this
+(relative)
+there is
+her
+(relative)
+Greek
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+reign, kingdom, majesty
+(relative)
+Hebrew
+and
+to lay waste, to destroy
+and
+to uproot, to pull out, to break down
+her
+from
+root
+her
+and
+not
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+in
+her
+remaining, surviving
+even
+not
+foot, heel, hoof, footstep
+one
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+and
+to go out, to issue, to proceed forth
+fruit
+because of
+(relative)
+from
+when, although, because, while
+he
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+in
+hand, side
+Vespasianus
+and
+Titus
+male offspring
+him
+these
+in
+hand, side
+them
+to uproot, to pull out, to break down
+reign, kingdom, majesty
+(relative)
+Hebrew
+and
+to lay waste, to destroy
+immediately, at once
+reign, kingdom, majesty
+them
+that
+(relative)
+PA to prophesy, ETHPA to prophesy, to behave as a prophet
+upon, because
+him
+Daniel
+(relative)
+from
+after, following
+(relative)
+to kill, PA to kill many
+to besmear, to anoint, PA to measure, to proportion
+to lay waste, to destroy
+city, town, province
+holiness, sanctity, holy things,sanctuary
+when, although, because, while
+then
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to be
+Babylonian
+to
+reign, kingdom, majesty
+(relative)
+Hebrew
+(relative)
+in
+him
+to be
+these
+ascent, climb, pass
+to be left over, to gain, AF to have over
+priesthood, office of priest
+and
+prophecy
+and
+reign, kingdom, majesty
+and
+when, although, because, while
+to uproot, to pull out, to break down
+her
+Vespasianus
+and
+to spoil, to plunder
+her
+to
+city, town, province
+pure, holy
+not
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+one
+from
+gift, present, favour
+these
+in
+one
+rod, stripe, tribe
+them
+even
+not
+reign, kingdom, majesty
+then
+(relative)
+Egyptian
+(relative)
+she
+there is
+her
+Macedonian
+(relative)
+in
+hand, side
+this
+(relative)
+there is
+her
+(relative)
+Roman
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+reign, kingdom, majesty
+(relative)
+Media
+and
+(relative)
+Persia
+and
+(relative)
+Armenian
+this
+reign, kingdom, majesty
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+to
+whole
+them
+reign, kingdom, majesty
+(relative)
+earth, land
+to
+thousand
+(relative)
+year
+to uproot, to pull out, to break down
+reign, kingdom, majesty
+(relative)
+Hebrew
+and
+(relative)
+Egyptian
+to
+three
+thousand
+(relative)
+year
+and
+when, although, because, while
+to uproot, to pull out, to break down
+reign, kingdom, majesty
+(relative)
+Macedonian
+(relative)
+there is
+her
+(relative)
+there is
+her
+to trickle down, to be dragged away, PA to provoke, to incite
+with
+reign, kingdom, majesty
+(relative)
+Roman
+reign, kingdom, majesty
+(relative)
+barbarian
+this
+he
+then
+(relative)
+Thracian
+and
+(relative)
+Iberian
+and
+when, although, because, while
+to uproot, to pull out, to break down
+reign, kingdom, majesty
+(relative)
+Hebrew
+to trickle down, to be dragged away, PA to provoke, to incite
+exchange
+her
+with
+Roman
+son
+Ishmael
+male offspring
+Hagar
+these
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to
+them
+Daniel
+seed, offspring
+(relative)
+the south
+and
+to trickle down, to be dragged away, PA to provoke, to incite
+with
+him
+ten
+week
+(relative)
+year
+because of
+(relative)
+PA to show, point out, give instruction, to discern, ETHPA to notice, to consider, to have discretion
+cutting off, end
+and
+not
+there is
+stretching, extension
+in
+middle, centre
+in
+this
+however
+thousand
+latter, last
+(relative)
+there is
+him
+seventh
+(relative)
+in
+him
+to uproot, to pull out, to break down
+reign, kingdom, majesty
+(relative)
+Persian
+and
+in
+him
+to go out, to issue, to proceed forth
+son
+Ishmael
+from
+desert, wilderness
+(relative)
+Yathrib
+and
+to come
+and
+to gather together, to collect, PA to assemble, to call together
+whole
+them
+there, yonder
+in
+Gibaoth
+Ramtha
+and
+there, yonder
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+word, saying, thing, affair
+him
+(relative)
+lord
+us
+(relative)
+to say
+(relative)
+to be like, ETHPE to be or become like, to imitate, PA to liken, to compare, to imitate, ETHPA to be or become like, to be compared
+namely
+to
+life, vitality, living creature
+(relative)
+field, land, country
+and
+to
+bird
+(relative)
+heaven, ceiling, roof, eaves
+and
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to
+them
+(relative)
+to gather together, to collect, PA to assemble, to call together
+and
+to come
+because of
+(relative)
+sacrifice, offering
+great
+to slay, to slaughter, to offer sacrifice, PA to sacrifice
+I
+to
+you
+today
+to eat, to consume
+flesh, body
+(relative)
+PA fatten
+and
+to drink, to imbibe
+blood, bloodshed
+(relative)
+mighty, strong
+in
+her
+however
+in
+Gibaoth
+to lay waste, to destroy
+PA fatten
+reign, kingdom, majesty
+(relative)
+Greek
+(relative)
+to lay waste, to destroy
+to
+reign, kingdom, majesty
+(relative)
+Hebrew
+and
+(relative)
+Persian
+and
+thus, so, such
+to lay waste, to destroy
+even
+they
+in
+Gibaoth
+from
+Ishmael
+help
+(relative)
+desert, wilderness
+(relative)
+in
+rage, fury
+(relative)
+rage
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+upon, because
+son
+man, human, mortal
+and
+upon, because
+life, vitality, living creature
+and
+upon, because
+sheep, cattle, beasts
+and
+upon, because
+tree, tree trunk
+and
+upon, because
+planting, power of reproduction, plant
+and
+rebellion, revolt, instruction, correction
+there is
+her
+(relative)
+not
+there is
+in
+her
+womb, tenderness, compassion
+and
+these
+earth, land
+head, top, summit
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+before
+them
+upon, because
+whole
+her
+earth, land
+loss, perdition, destruction, ruin
+and
+destroying
+and
+damage
+and
+destroying, corrupting, rapacious
+to perish, to come to naught. AF to destroy
+to
+whole
+city, town, province
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+and
+damage
+(relative)
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+whole
+something, aught
+to say
+however
+in
+hand, side
+Moses
+(relative)
+not
+he
+because of
+(relative)
+to love, to desire, PA to have mercy upon
+to
+you
+THE LORD
+god
+you
+to enter, AF to bring in, to carry in
+to
+you
+to
+earth, land
+(relative)
+people
+(relative)
+to be heir, to inherit
+her
+if, O!
+not
+because of
+iniquity, injustice
+(relative)
+inhabitant
+her
+even
+these
+son
+Ishmael
+not
+to be
+because of
+(relative)
+to love, to desire, PA to have mercy upon
+to
+them
+god
+to give
+to
+them
+(relative)
+to enter, AF to bring in, to carry in
+in
+reign, kingdom, majesty
+(relative)
+Christian
+if, O!
+not
+because of
+iniquity, injustice
+and
+sin
+(relative)
+to do, to make, to work
+in
+hand, side
+(relative)
+Christian
+(relative)
+not
+to do, to make, to work
+as, such as, like
+her
+in
+one
+from
+generation
+first
+(relative)
+to cover, PA to cover, to hide, to conceal, ETHPA to be covered, clothed
+to be
+man
+in
+garment
+wanton
+(relative)
+women
+fornicating, prostituting
+(relative)
+PA to set in order, to decorate, adorn, ETHPA to adorn oneself, be adorned
+to be
+as, almost, about
+virgin, celibate, chaste, maiden
+and
+to arise APH raise up, place
+clearly, openly
+in
+an open space, street, square, market-place
+(relative)
+city, town, province
+and
+be insane
+to be
+in
+satiety
+and
+in
+intemperance
+(relative)
+not
+shame, modesty
+and
+to make share
+to be
+one
+with
+one
+even
+women
+fornicating, prostituting
+to arise APH raise up, place
+to be
+clearly, openly
+in
+an open space, street, square, market-place
+and
+to enter, AF to bring in, to carry in
+to be
+man
+and
+to commit whoredom
+and
+to go out, to issue, to proceed forth
+and
+to come
+male offspring
+him
+and
+in
+her
+when, although, because, while
+in
+her
+PA to profane, to pollute, to defile, ETHPA to be defiled, polluted
+to be
+and
+brother
+and
+father
+and
+son
+whole
+them
+as, almost, about
+one
+PA to profane, to pollute, to defile, ETHPA to be defiled, polluted
+to be
+in
+one
+woman, wife
+and
+upon, because
+this
+to say
+Paul
+to send, PA to strip, to despoil
+(relative)
+male, masculine, a ram, chem. arsenic
+them
+to leave, to leave behind, to dismiss, to remit
+usage
+(relative)
+nature
+(relative)
+female, feminine
+and
+immoderate, ETHPE and ETHPA idem, PAPH provoke lust, APH ravish
+in
+desire, longing, object of desire
+one
+upon, because
+one
+and
+male, masculine, a ram, chem. arsenic
+upon, because
+male, masculine, a ram, chem. arsenic
+shame, disgrace
+to do, to make, to work
+again, back
+namely
+even
+women
+thus, so, such
+to leave, to leave behind, to dismiss, to remit
+usage
+(relative)
+nature
+(relative)
+man
+and
+in
+something, aught
+(relative)
+not
+to exist
+to be fit, suitable, ETHPA to be used to, familiar with
+because of
+this
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+to
+them
+god
+to
+defilement, abomination
+(relative)
+barbarian
+and
+suffer pain
+man
+mighty, strong
+in
+rebellion, revolt, instruction, correction
+(relative)
+distress, calamity, siege
+and
+PA to profane, to pollute, to defile, ETHPA to be defiled, polluted
+women
+them
+with
+son
+defilement, abomination
+I
+then
+when, although, because, while
+to look, to gaze, to behold
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to
+these
+four
+head, top, summit
+(relative)
+rebellion, revolt, instruction, correction
+to
+damage
+and
+to
+destroying, corrupting, rapacious
+and
+to
+loss, perdition, destruction, ruin
+and
+to
+destroying
+that
+then
+throw down
+piece, part, lot, share
+upon, because
+earth, land
+to give
+earth, land
+(relative)
+Persia
+to
+damage
+(relative)
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+her
+and
+to
+inhabitant
+her
+to
+captives, captivity, devastation
+and
+to
+slaughter, murder
+and
+to
+damage
+and
+Syria
+she
+to
+sword, blade, dagger
+(relative)
+damage
+and
+inhabitant
+her
+to
+captives, captivity, devastation
+and
+to
+slaughter, murder
+Sicily
+to
+loss, perdition, destruction, ruin
+and
+to
+sword, blade, dagger
+and
+to sit, AF, to make dwell, to set, place
+her
+to
+captives, captivity, devastation
+and
+to
+slaughter, murder
+Hellas
+she
+to
+sword, blade, dagger
+(relative)
+damage
+and
+inhabitant
+her
+to
+captives, captivity, devastation
+and
+to
+slaughter, murder
+earth, land
+(relative)
+Roman
+she
+to
+damage
+and
+to
+sword, blade, dagger
+and
+to sit, AF, to make dwell, to set, place
+her
+to
+refuge
+and
+to
+seizing by force, rapine, rape
+and
+to
+captives, captivity, devastation
+and
+island
+(relative)
+sea, lake
+those
+to
+refuge
+and
+inhabitant
+them
+to
+captives, captivity, devastation
+(relative)
+loss, perdition, destruction, ruin
+Egypt
+and
+Syria
+and
+place, region
+(relative)
+sunrise, east, Persian empire, Syria
+to yoke
+in
+yoke, servitude
+(relative)
+tribute, fine, penalty
+and
+(relative)
+lifting up
+one
+in
+seven
+in
+distress, calamity, siege
+(relative)
+son
+captives, captivity, devastation
+and
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+earth, land
+(relative)
+promise, counsel, property
+son
+man, human, mortal
+from
+four
+breath, wind, spirit
+heaven, ceiling, roof, eaves
+as, almost, about
+locust, parsnip
+(relative)
+to gather together, to collect, PA to assemble, to call together
+in
+whirlwind, hurricane
+and
+to be
+in
+her
+hunger, scarcity, famine
+and
+distress, calamity, siege
+and
+plague, pestilence, mortality, slaughter
+and
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+destroying, corrupting, rapacious
+and
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+horn
+him
+and
+to ride, AF to make ride, to set
+elevation, height, pride
+and
+to turn another way, to reflect, to clothe oneself, ETHPE to be covered, PA to cover, to clothe, ETHPA to wrap oneself, APH to cover as with a garment
+pride
+until, as far as, unto, so that
+to
+time, age, era
+rage
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+entrance, ingress
+the north wind, the north
+and
+way, road, custom
+(relative)
+sunrise, east, Persian empire, Syria
+and
+pass, passage
+him
+(relative)
+sea, lake
+and
+to yoke
+in
+yoke, servitude
+(relative)
+subjection, obedience, tyranny
+them
+son
+man, human, mortal
+and
+sheep, cattle, beasts
+and
+life, vitality, living creature
+and
+bird
+and
+water
+(relative)
+sea, lake
+to do, to make, to work
+to
+them
+and
+desolate, uninhabited, arid
+(relative)
+widow
+from
+service, labour
+them
+[possessive]
+him
+to be
+and
+to write, ETHPE to be written, APH to write
+tyrant, lord, ruler, rebel
+[possessive]
+him
+and
+to be
+fish
+(relative)
+in
+the inside, inward parts
+sea, lake
+and
+tree, tree trunk
+(relative)
+in
+the inside, inward parts
+thicket, thick wood, dense forest
+and
+planting, power of reproduction, plant
+(relative)
+fruit
+them
+and
+dust, earth
+her
+(relative)
+earth, land
+with
+stone
+her
+and
+ingathering, increase, harvest
+her
+and
+commerce, merchandise
+(relative)
+merchant
+and
+service, labour
+(relative)
+workman
+and
+inheritance, portion, lot
+(relative)
+to be or grow rich
+and
+gift, present, favour
+and
+pure, holy
+(relative)
+gold
+and
+(relative)
+silver
+and
+(relative)
+brass
+and
+(relative)
+iron
+and
+garment
+and
+whole
+them
+vessel, utensil, instrument, garment
+praise, honour
+and
+decoration, ornament, carved or decorative work
+and
+food, suburbs
+and
+royal food
+and
+whole
+them
+to desire, covet, lust, PALP to make to long, to arouse desire, ETHPALP to long sorely, yearn, earnestly desire, APH to long, covet
+and
+pleasure
+[possessive]
+him
+to be
+and
+PA to raise, ETHPA to be raised, to be exalted, AF to lift up, to act perversely
+in
+rage, fury
+him
+and
+in
+elevation, height, pride
+him
+until, as far as, unto, so that
+(relative)
+to seek, demand, avenge, ETHPE to avenge oneself, be avenged, to be required, compelled
+hundred
+from
+to die, AF to put to death
+to lie down
+dust, earth
+and
+to take, to receive
+silver, money
+head, top, summit
+from
+bereaved, desolate, fatherless, orphan
+and
+from
+widow
+and
+from
+pure, holy
+and
+not
+to love, to desire, PA to have mercy upon
+upon, because
+poor, needy, miserable
+and
+not
+to judge, to rule, to bring a suit
+to
+to be pressing, to straiten, to hem in ETPHE be straight, narrow, tormented (with illness, hunger, thirst)
+and
+beat
+to
+old age
+and
+to loathe, to be weary, AF to annoy, to distress
+breath, wind, spirit
+(relative)
+to smite, dash against, PA to buffet, smite repeatedly, ETHPA to be shaken to and fro, to be exhausted, APH to smite, shake violently
+and
+not
+to have pity, to refrain from
+upon, because
+PE ptc pss sick, ill weak, ETHPE to fall sick, to be weak, to be tender, PA to make ill, ETHPA to become very ill
+and
+not
+to love, to desire, PA to have mercy upon
+upon, because
+weak
+might, strength, force
+if, O!
+not
+to laugh, to be merry, to dance
+in
+wise, sensible
+and
+deride
+in
+to put, to lay up, to constitute
+nome, prefecture, law, custom, usage
+and
+praise, deride
+in
+intellectual
+and
+to spread out, to extend
+veil
+(relative)
+silence
+upon, because
+whole
+them
+son
+man, human, mortal
+and
+to sit, AF, to make dwell, to set, place
+whole
+them
+inhabitant
+her
+(relative)
+earth, land
+in
+torpor, stupor, amazement
+and
+in
+dizziness
+and
+to be
+way, road, custom
+(relative)
+journey
+them
+from
+them
+and
+in
+them
+and
+little, feeble, younger, inferior
+as, almost, about
+great
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+and
+to treat with contempt
+as, almost, about
+to be heavy, ETHPE to be burdened, PA to honour, treat with reverence, worship, ETHPA to be honoured, to be accounted precious, APH to make heavy or dull, to give honour, make valuable, appraise, ETTAPH to be burdened
+and
+word, saying, thing, affair
+them
+as, almost, about
+(relative)
+in
+sword or dagger
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+and
+not
+there is
+(relative)
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+to
+persuasion, supplication
+(relative)
+word, saying, thing, affair
+them
+and
+to be
+way, road, custom
+(relative)
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+journey
+them
+from
+sea, lake
+and
+until, as far as, unto, so that
+to
+sea, lake
+and
+from
+the north wind, the north
+and
+until, as far as, unto, so that
+to
+desert, wilderness
+(relative)
+Yathrib
+and
+to be
+way, road, custom
+to
+distress, calamity, siege
+and
+to journey, to continue, to emanate, to instruct, to chastise
+in
+her
+elderly
+and
+elderly
+and
+to be or grow rich
+and
+poor, needy, miserable
+when, although, because, while
+to hunger
+and
+to thirst, PA intensive, ETHPA idem, APH to cause to thirst
+and
+suffer pain
+in
+band, chain, handcuffs, imprisonment
+PA to harden, AF to make grievous
+until, as far as, unto, so that
+(relative)
+only ipf to give, to make to be, to put
+good, good things
+to
+part, portion
+because of
+(relative)
+she
+rebellion, revolt, instruction, correction
+(relative)
+to say
+to send, PA to strip, to despoil
+(relative)
+if, O!
+not
+namely
+first of all
+to come
+she
+rebellion, revolt, instruction, correction
+and
+then
+to uncover, PA to reveal, to lead or go into captivity
+male offspring
+man, human, mortal
+that
+(relative)
+sin
+male offspring
+him
+(relative)
+loss, perdition, destruction, ruin
+and
+not
+he
+upon, because
+son
+man, human, mortal
+in
+only, alone, sole
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+this
+rebellion, revolt, instruction, correction
+if, O!
+not
+even
+upon, because
+whole
+something, aught
+(relative)
+there is
+upon, because
+nostril, countenance
+whole
+her
+earth, land
+upon, because
+man
+and
+upon, because
+women
+and
+upon, because
+young
+and
+upon, because
+life, vitality, living creature
+and
+upon, because
+sheep, cattle, beasts
+and
+upon, because
+bird
+and
+suffer pain
+son
+man, human, mortal
+in
+that
+rebellion, revolt, instruction, correction
+they
+and
+women
+them
+and
+son
+them
+and
+daughter
+them
+and
+possessions, landed property
+them
+and
+elderly
+weak
+might, strength, force
+and
+PE ptc pss sick, ill weak, ETHPE to fall sick, to be weak, to be tender, PA to make ill, ETHPA to become very ill
+with
+strong, mighty, powerful
+and
+poor, needy, miserable
+with
+to be or grow rich
+because of
+(relative)
+help
+(relative)
+in
+desert, wilderness
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+him
+god
+to
+Ishmael
+father
+them
+and
+roe, deer
+and
+whole
+them
+life, vitality, living creature
+(relative)
+field, land, country
+and
+(relative)
+in
+the inside, inward parts
+peace
+to be pressing, to straiten, to hem in ETPHE be straight, narrow, tormented (with illness, hunger, thirst)
+from
+them
+and
+to urge on, banish, chase away, pursue
+son
+man, human, mortal
+and
+to die, AF to put to death
+life, vitality, living creature
+and
+sheep, cattle, beasts
+and
+tree, tree trunk
+thicket, thick wood, dense forest
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+and
+grace, fairness, virtue
+(relative)
+planting, power of reproduction, plant
+(relative)
+mountain
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+and
+to lay waste, to destroy
+city, town, province
+prosperous
+and
+rust, waste, uncultivation, desert, solitude
+place, region
+from
+without, for want of (used with MN)
+(relative)
+to pass on, to pass over, AF to cause to pass, to transfer, to remove
+in
+them
+and
+PA to profane, to pollute, to defile, ETHPA to be defiled, polluted
+earth, land
+in
+blood, bloodshed
+and
+to cheat, purloin, seize, ETHPE to be deprived
+from
+her
+ingathering, increase, harvest
+and
+not
+he
+however
+son
+man, human, mortal
+they, them
+these
+tyrant, lord, ruler, rebel
+barbarian
+if, O!
+not
+son
+desolate, uninhabited, arid
+they, them
+and
+to
+desolate, uninhabited, arid
+to put, to lay up, to constitute
+nostril, countenance
+them
+and
+destroying, corrupting, rapacious
+they, them
+and
+to
+damage
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+and
+loss, perdition, destruction, ruin
+they, them
+and
+to
+loss, perdition, destruction, ruin
+(relative)
+whole
+to go out, to issue, to proceed forth
+and
+PA to profane, to pollute, to defile, ETHPA to be defiled, polluted
+they, them
+and
+defilement, abomination
+to love, to desire, PA to have mercy upon
+and
+in
+time, age, era
+setting out, return, departure, version
+them
+(relative)
+from
+the inside, inward parts
+desert, wilderness
+to
+infant, babe, suckling
+from
+side or edge of wing, border of skirt, arms, lap, bosom
+(relative)
+mother
+them
+to take by fore, violate, ETHPE to be seized, pillaged, PA to take by fore, ETHPA to be dragged away by force
+and
+as, almost, about
+(relative)
+to
+life, vitality, living creature
+PA to profane, to pollute, to defile, ETHPA to be defiled, polluted
+to beat, dash against the ground, PA to dash against the ground, to batter
+to
+them
+in
+stone
+and
+assistant
+in
+the inside, inward parts
+house
+holiness <deprecated>
+to slay, to slaughter, to offer sacrifice, PA to sacrifice
+and
+even
+with
+women
+them
+and
+with
+daughter
+captives, captivity, devastation
+in
+the inside, inward parts
+house
+holiness <deprecated>
+to sleep
+and
+vessel, utensil, instrument, garment
+holiness <deprecated>
+to
+garment
+[possessive]
+them
+and
+(relative)
+son
+them
+to do, to make, to work
+and
+sheep, cattle, beasts
+them
+in
+stone vessel
+(relative)
+witness
+and
+in
+house
+burial
+(relative)
+pure, holy
+to bind
+and
+there is
+them
+rebellious, refractory, insolent
+and
+slayer
+and
+to shed, to pour out
+blood, bloodshed
+and
+destroying, corrupting, rapacious
+and
+furnace, crucible, fire
+(relative)
+test
+there is
+them
+to
+whole
+them
+Christian
+to say
+however
+to send, PA to strip, to despoil
+blessed
+(relative)
+not
+he
+whole
+them
+(relative)
+from
+Israel
+there is
+them
+Israel
+and
+even
+not
+whole
+them
+who, which, what
+(relative)
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+Christian
+there is
+them
+Christian
+seven
+however
+thousand
+in
+only, alone, sole
+AF to tarry, to delay, SH to be slack, ESHTA to delay, to remain
+from
+son
+Israel
+in
+day
+Elijah
+prophet
+to bow, to do obeisance
+to be
+to
+THE LORD
+god
+and
+whole
+him
+Israel
+in
+them
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+thus, so, such
+even
+in
+time, age, era
+rebellion, revolt, instruction, correction
+them
+(relative)
+these
+tyrant, lord, ruler, rebel
+swift, light, rapid, small, few
+from
+much, many, great
+ETHPEAL to remain, to delay
+who, which, what
+(relative)
+there is
+them
+Christian
+as, almost, about
+(relative)
+he
+saviour, deliverer
+us
+PA to show
+to
+us
+in
+gospel
+pure, holy
+and
+to say
+(relative)
+when, although, because, while
+namely
+to come
+male offspring
+him
+(relative)
+man, human, mortal
+and
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+firmness, truth, faithfulness
+upon, because
+earth, land
+behold
+even
+these
+to fill, to complete, to be full, PA to fill up, to fulfill, SHA to do thoroughly, to fulfill
+in
+sign, token
+to be short, to be sad
+breath, wind, spirit
+them
+in
+those
+day
+(relative)
+rebellion, revolt, instruction, correction
+and
+multitude, great part
+from
+these
+(relative)
+to be
+son
+an assembly, congregation, company, church
+to wipe, to deny, ETHPE to be wiped, to be denied, PA to rub, to compel, ETHPA to be rubbed, to be blotted, APH to force to deny
+in
+firmness, truth, faithfulness
+true
+(relative)
+Christian
+and
+in
+cross
+pure, holy
+and
+in
+secret, mystery
+fear
+and
+(relative)
+not
+necessity
+and
+pulling, lashing
+and
+blow, wound, sore, sickness, plague
+to wipe, to deny, ETHPE to be wiped, to be denied, PA to rub, to compel, ETHPA to be rubbed, to be blotted, APH to force to deny
+in
+to besmear, to anoint, PA to measure, to proportion
+and
+to be even, equal, sufficient, to be worth, ETHPE to be equal, PA to lay even, to wipe, to treat as equal, to agree, ETHPA to be laid low, to agree, APH to level, make even
+breath, animal soul
+them
+with
+unbeliever, denier, apostate
+and
+because of
+this
+even
+to send, PA to strip, to despoil
+ETHPE to be proclaimed, to be announced, AF to proclaim by a herald or messenger
+upon, because
+them
+(relative)
+in
+time, age, era
+latter, last
+to go out, to issue, to proceed forth
+son
+man, human, mortal
+from
+firmness, truth, faithfulness
+and
+to go, to walk
+after, following
+breath, wind, spirit
+impure
+and
+after, following
+learning, instruction
+(relative)
+demon
+and
+to be
+rebellious, refractory, insolent
+and
+to eat, to consume
+gnawed or broken morsel, slander
+and
+boastful, vainglorious
+and
+to hate
+good, exceedingly, very
+and
+betraying
+and
+wild, fierce
+and
+whole
+them
+who, which, what
+(relative)
+there is
+them
+false
+and
+PE ptc pss sick, ill weak, ETHPE to fall sick, to be weak, to be tender, PA to make ill, ETHPA to become very ill
+in
+firmness, truth, faithfulness
+in
+that
+rebellion, revolt, instruction, correction
+to try, to prove, to examine, ETHPE to be tried, to prove oneself
+and
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+and
+they
+to
+them
+to separate, to sever, to divide
+from
+the inside, inward parts
+congregation
+(relative)
+Christian
+in
+will, desire
+breath, animal soul
+them
+because of
+(relative)
+he
+time, age, era
+to call, to read, ETHPE to be called, to be read, APH to summon, to make to read, to provoke, TAPH to read, ETHTAPH to oppose
+to
+them
+(relative)
+to go, to walk
+after, following
+defilement, abomination
+him
+low, sunken, humble
+however
+calm
+and
+sweet
+and
+to cease, to desist, to be silent, to dwell in peace, ETHPA to cease, to be stilled, APH to come to quiet
+and
+true
+and
+son
+free, well-born, noble
+and
+wise, sensible
+and
+to choose
+not
+to seek
+in
+that
+time, age, era
+because of
+(relative)
+to despise, to reject
+and
+to treat with contempt
+if, O!
+not
+exchange
+these
+to seek
+proud
+and
+tall, high, exalted, sublime, proud
+and
+boastful, vainglorious
+and
+false, vain, deceitful
+and
+to eat, to consume
+gnawed or broken morsel, slander
+and
+accusing
+and
+disturbing
+and
+to weigh light, PA to lessen, make light, ETHPA to think little of, be or be considered of little value, AF to despise
+and
+who, which, what
+(relative)
+to cheat, purloin, seize, ETHPE to be deprived
+from
+womb, tenderness, compassion
+and
+ravenous, rapacious
+and
+spoiler, destroyer
+and
+wild, fierce
+and
+not
+skilled
+and
+stupid, foolish
+from
+mind, intelligence, sense, meaning
+and
+from
+fear, dread, awe, worship, idol
+god
+and
+who, which, what
+(relative)
+PA to revile
+to
+father
+them
+and
+who, which, what
+(relative)
+PA to revile, to blaspheme
+upon, because
+secret, mystery
+pure, holy
+and
+to wipe, to deny, ETHPE to be wiped, to be denied, PA to rub, to compel, ETHPA to be rubbed, to be blotted, APH to force to deny
+in
+to besmear, to anoint, PA to measure, to proportion
+and
+man, human, mortal
+simple
+(relative)
+not
+there is
+in
+them
+wisdom
+(relative)
+god
+they
+then
+to be
+ministering
+(relative)
+he
+and
+word, saying, thing, affair
+them
+[possessive]
+them
+false, vain, deceitful
+to believe
+and
+upon, because
+something, aught
+(relative)
+to say
+to
+them
+from
+them
+to hear, ETHPE to be heard, to be obedient, APH to let or make hear, to announce
+and
+true
+and
+cleric
+and
+wise, sensible
+and
+good, exceedingly, very
+to treat with contempt
+in
+eye
+them
+and
+as, almost, about
+dung, excrement
+to be
+to be
+however
+in
+rebellion, revolt, instruction, correction
+(relative)
+son
+Ishmael
+and
+to enter, AF to bring in, to carry in
+to
+distress, calamity, siege
+until, as far as, unto, so that
+(relative)
+to cut, to interrupt, to make an agreement, PA to cut to bits, to break in fragments
+hope, trust, confidence
+(relative)
+life
+them
+and
+to lift up, to carry, to break up, to march
+honour, glory
+from
+priest
+and
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+serving, service, worship
+(relative)
+god
+and
+sacrifice, offering
+alive
+from
+the inside, inward parts
+an assembly, congregation, company, church
+and
+to be
+priest
+as, almost, about
+people
+in
+that
+time, age, era
+and
+in
+that
+week
+(relative)
+ten
+(relative)
+in
+him
+complete
+victory, justification, innocence
+them
+to gain strength, to prevail, PA to strengthen, to repair, AF to set firmly, to harden, to repair
+distress, calamity, siege
+to double
+rebellion, revolt, instruction, correction
+upon, because
+son
+man, human, mortal
+and
+upon, because
+sheep, cattle, beasts
+and
+upon, because
+life, vitality, living creature
+and
+to be
+hunger, scarcity, famine
+great
+and
+to die, AF to put to death
+son
+man, human, mortal
+much, many, great
+and
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+corpse, body, carcass
+them
+as, almost, about
+mud, mire, filth
+in
+the inside, inward parts
+an open space, street, square, market-place
+from
+without, for want of (used with MN)
+(relative)
+to bury, PA to bury many, to heap up
+and
+in
+one
+from
+those
+day
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+blow, wound, sore, sickness, plague
+(relative)
+rage
+upon, because
+son
+man, human, mortal
+two
+and
+three
+in
+day
+one
+and
+to sleep
+male offspring
+man, human, mortal
+from
+evening, eventide
+and
+to arise APH raise up, place
+in
+morning
+and
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+to
+outside area
+from
+gate, door, entrance
+him
+two
+and
+three
+to lead, to guide, PA to lead, to guide, to drive
+in
+necessity
+and
+to seek, demand, avenge, ETHPE to avenge oneself, be avenged, to be required, compelled
+tribute, fine, penalty
+and
+silver, money
+and
+to finish, to accomplish, PA to make perfect, to bring to an end
+from
+earth, land
+whole
+him
+calculation
+(relative)
+to give
+and
+(relative)
+lifting up
+and
+to buy, PA to sell, ETHPA to be sold (>ZDBN)
+son
+man, human, mortal
+in
+that
+time, age, era
+brass
+them
+and
+iron
+them
+and
+vessel, utensil, instrument, garment
+nearness, war
+them
+and
+in
+that
+week
+(relative)
+ten
+what
+(relative)
+to finish, to accomplish, PA to make perfect, to bring to an end
+whole
+something, aught
+son
+them
+and
+daughter
+them
+in
+silver, money
+to
+pagan
+only ipf to give, to make to be, to put
+because of
+who, which, what
+offering, high place, altar
+APH to turn away, avert, to disregard, neglect, to allow, to delay, ETTAPH to neglect, to be neglected
+god
+a sight, look, gaze, countenance
+him
+from
+aid
+them
+(relative)
+to believe
+(relative)
+to carry, to endure, PA to fetch, to make endure, AF to made endure
+these
+distress, calamity, siege
+as, almost, about
+(relative)
+to try, to prove, to examine, ETHPE to be tried, to prove oneself
+and
+to separate, to sever, to divide
+to believe
+from
+not
+to believe
+and
+pl. tares
+and
+to despise, to reject
+from
+wheat
+to choose
+because of
+(relative)
+furnace, crucible, fire
+(relative)
+to try, to prove, to examine, ETHPE to be tried, to prove oneself
+there is
+him
+from
+time, age, era
+that
+and
+be long, continue, last, saw, PA to repress, restrain, to saw, APH to make long
+god
+breath, wind, spirit
+him
+when, although, because, while
+to urge on, banish, chase away, pursue
+worshipper
+him
+(relative)
+in
+hand, side
+rebellion, revolt, instruction, correction
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+son
+as, almost, about
+(relative)
+before
+ETHPE to be proclaimed, to be announced, AF to proclaim by a herald or messenger
+to
+us
+he
+to send, PA to strip, to despoil
+(relative)
+yes, if, whether, but
+then
+namely
+(relative)
+not
+rebellion, revolt, instruction, correction
+there is
+us
+to be
+we
+to
+us
+strange, foreign, alien
+and
+not
+son
+even
+he
+saviour, deliverer
+us
+to visit, to command, to entreat, PA to give commission
+and
+to say
+to
+us
+(relative)
+good, good things
+you
+when, at that time
+(relative)
+to revile, to scorn, PA same
+to
+you
+and
+to urge on, banish, chase away, pursue
+to
+you
+and
+to say
+upon, because
+you
+whole
+word, saying, thing, affair
+evil
+because of
+me
+in
+falsehood, treacher, unfaithfulness
+then
+to rejoice, PA to gladden, to congratulate
+and
+to exult, rejoice greatly; to flourish, thrive
+(relative)
+wage, fee, fare, reward
+you
+much, many, great
+in
+heaven, ceiling, roof, eaves
+thus, so, such
+however
+to urge on, banish, chase away, pursue
+to
+prophet
+(relative)
+from
+before
+you
+and
+who, which, what
+(relative)
+to bear, support , to restrain, to refrain from punishment
+until, as far as, unto, so that
+to
+latter end, extremity
+he
+to live, to be alive, AF to keep alive
+and
+from
+after, following
+these
+distress, calamity, siege
+and
+rebellion, revolt, instruction, correction
+(relative)
+son
+Ishmael
+in
+end of a fixed period
+week
+that
+when, although, because, while
+throw down
+son
+man, human, mortal
+in
+danger
+(relative)
+rebellion, revolt, instruction, correction
+and
+not
+there is
+hope, trust, confidence
+(relative)
+to separate, to redeem, PA to break off, to rend, AF to rend, to cause to depart, to drive away, to remove
+from
+subjection, obedience, tyranny
+that
+PA to harden, AF to make grievous
+when, although, because, while
+to urge on, banish, chase away, pursue
+and
+to be pressing, to straiten, to hem in ETPHE be straight, narrow, tormented (with illness, hunger, thirst)
+and
+beat
+and
+to hunger
+and
+to thirst, PA intensive, ETHPA idem, APH to cause to thirst
+and
+suffer pain
+in
+rebellion, revolt, instruction, correction
+PA to harden, AF to make grievous
+even
+these
+tyrant, lord, ruler, rebel
+wild, fierce
+PA to treat with affection, ETHPA to delight oneself, be pampered
+in
+food, suburbs
+and
+in
+drinking, feast
+and
+in
+rest, calm, quiet, satisfaction, will, pleasure
+and
+PE only part.pass dim, SHAPH to glorify, ESHTAPH to boast
+in
+victory, justification, innocence
+them
+(relative)
+to lay waste, to destroy
+and
+to perish, to come to naught. AF to destroy
+to
+Persian
+and
+to
+Armenian
+and
+Cilician
+and
+to
+Isaurian
+and
+to
+Cappadocian
+and
+Siliclian?
+and
+to
+Eldanite?
+and
+to sit, AF, to make dwell, to set, place
+earth, land
+(relative)
+Roman
+and
+whole
+them
+island
+(relative)
+sea, lake
+and
+to clothe oneself, to put on (armour)
+as, almost, about
+one connected by marriage
+and
+PA to set in order, to decorate, adorn, ETHPA to adorn oneself, be adorned
+as, almost, about
+bride
+and
+PA to revile, to blaspheme
+when, although, because, while
+to say
+(relative)
+not
+there is
+saviour, deliverer
+to
+Christian
+then
+from
+under, beneath
+stillness, calm, stupor, silence
+to wake, to watch, PA to wake, to rouse, AF to wake, to awaken, ETTAPH to awake, to be awakened, aroused, excited, to be attentive, sober, to wake from the dead
+pangs of travail
+(relative)
+distress, calamity, siege
+as, almost, about
+(relative)
+to beget, to generate, ptc.f.emph de=JLDT>
+and
+to go out, to issue, to proceed forth
+upon, because
+them
+king
+(relative)
+Greek
+in
+rage, fury
+great
+and
+to wake, to watch, PA to wake, to rouse, AF to wake, to awaken, ETTAPH to awake, to be awakened, aroused, excited, to be attentive, sober, to wake from the dead
+upon, because
+them
+as, almost, about
+man
+(relative)
+to shake, to toss, to throw away, to impel, ETHPE to be tossed, PA to shake violently, ETHPA to be stirred up, to be shaken
+him
+must, wine
+him
+that
+(relative)
+to count, to regard, to blame, ETHPA to plan, to devise, to have in mind
+to be
+upon, because
+them
+as, almost, about
+to die, AF to put to death
+to go out, to issue, to proceed forth
+upon, because
+them
+from
+sea, lake
+(relative)
+Ethiopian
+and
+throw down
+sword, blade, dagger
+and
+loss, perdition, destruction, ruin
+in
+desert, wilderness
+(relative)
+Yathrib
+and
+in
+the inside, inward parts
+house
+dwelling, abode
+(relative)
+father
+them
+and
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+son
+him
+(relative)
+king
+(relative)
+Greek
+place, region
+(relative)
+desert, wilderness
+and
+to finish, to accomplish, PA to make perfect, to bring to an end
+in
+sword, blade, dagger
+to
+remaining, surviving
+(relative)
+ETHPEAL to remain, to delay
+from
+them
+in
+earth, land
+(relative)
+promise, counsel, property
+and
+fall
+in
+them
+fear, dread, awe, worship, idol
+from
+whole
+them
+(relative)
+circle, surroundings
+them
+and
+they
+and
+women
+them
+and
+son
+them
+and
+leader, ruler, judge
+them
+and
+whole
+them
+camp, host
+them
+and
+whole
+her
+earth, land
+(relative)
+desert, wilderness
+(relative)
+father
+them
+in
+hand, side
+(relative)
+king
+(relative)
+Greek
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+and
+to give
+to
+sword, blade, dagger
+and
+to
+sword, blade, dagger
+and
+to
+captives, captivity, devastation
+and
+to
+slaughter, murder
+and
+to be
+to wax strong, to be difficult, ETHPE to be subdued, PA to strengthen, ETHPA to show oneself strong, PAM to grasp firmly, be very strong
+subjection, obedience, tyranny
+them
+one
+in
+hundred
+(relative)
+yoke, servitude
+them
+[possessive]
+them
+and
+to be
+in
+distress, calamity, siege
+PA to harden, AF to make grievous
+from
+hunger, scarcity, famine
+and
+from
+tossing to and fro, weariness, vexation
+and
+to be
+servant
+they
+and
+women
+them
+and
+son
+them
+and
+PA to serve, ETHPA to be served
+servitude
+to
+those
+(relative)
+PA to serve, ETHPA to be served
+to be
+to
+them
+and
+to be
+to be bitter, PA irreg. to make bitter, AF to make bitter, to make sad, PALPAL to render bitter, to exacerbate, ETHPALPAL to be embittered, to be saddened, to be provoked to wrath
+servitude
+them
+one
+in
+hundred
+from
+that
+[possessive]
+them
+and
+pacify
+earth, land
+(relative)
+to lay waste, to destroy
+from
+inhabitant
+her
+and
+to turn, to change, to move
+remaining, surviving
+(relative)
+ETHPEAL to remain, to delay
+man, human, mortal
+man, human, mortal
+to
+earth, land
+him
+and
+to
+inheritance, portion, lot
+(relative)
+father
+him
+and
+Cappadocian
+and
+Armenian
+and
+Cilician
+and
+Isaurian
+and
+African
+and
+Greek
+and
+Silvacian?
+and
+whole
+him
+remaining, surviving
+(relative)
+to take, to seize on, to lay hold of, ETHPE (>TTXD) to be seized, PA to put in possession, to shut closely, AF to make lay hold, to kindle, to set fire
+from
+captives, captivity, devastation
+and
+(relative)
+to be
+in
+servitude
+(relative)
+captives, captivity, devastation
+to turn, to change, to move
+whole
+man, human, mortal
+to
+place, region
+him
+and
+to
+house
+father
+him
+and
+to increase, AF to make more, increase, add
+son
+man, human, mortal
+upon, because
+earth, land
+(relative)
+to lay waste, to destroy
+to be
+as, almost, about
+locust, parsnip
+and
+Egypt
+to lay waste, to destroy
+and
+land, region
+to be burnt up, to set on fire, to catch fire, AF to set on fire
+and
+earth, land
+(relative)
+Hebron
+to lay waste, to destroy
+and
+tongue, speech, language
+sea, lake
+pacify
+and
+whole
+her
+rage, fury
+(relative)
+rage
+him
+(relative)
+king
+(relative)
+Greek
+in
+who, which, what
+(relative)
+to wipe, to deny, ETHPE to be wiped, to be denied, PA to rub, to compel, ETHPA to be rubbed, to be blotted, APH to force to deny
+to finish, to accomplish, PA to make perfect, to bring to an end
+and
+to be
+peace
+in
+earth, land
+(relative)
+not
+to be
+as, such as, like
+him
+because of
+(relative)
+he
+there is
+him
+peace
+latter, last
+(relative)
+end of a fixed period
+him
+(relative)
+age, era, eternity
+and
+to be
+gladness, joy
+in
+whole
+her
+earth, land
+and
+to sit, AF, to make dwell, to set, place
+son
+man, human, mortal
+in
+peace
+great
+and
+PA to make new, to dedicate, to restore
+an assembly, congregation, company, church
+and
+to build,PA to restore,to edify
+city, town, province
+and
+PA to free, to clear, to remove
+priest
+from
+lifting up
+and
+to rest, to stay quiet
+priest
+and
+son
+man, human, mortal
+in
+that
+time, age, era
+from
+labour, toil, pain, trouble
+and
+labour, trouble
+and
+tossing to and fro, weariness, vexation
+because of
+(relative)
+he
+there is
+him
+peace
+that
+(relative)
+to say
+in
+gospel
+[possessive]
+him
+(relative)
+to be
+namely
+peace
+great
+(relative)
+not
+to be
+as, such as, like
+him
+and
+to sit, AF, to make dwell, to set, place
+son
+man, human, mortal
+in
+rest, calm, quiet, satisfaction, will, pleasure
+and
+to eat, to consume
+and
+to drink, to imbibe
+and
+to rejoice, PA to gladden, to congratulate
+in
+gladness, joy
+(relative)
+heart
+and
+man
+to take, to receive
+women
+and
+women
+to give
+to
+man
+and
+to build,PA to restore,to edify
+building
+and
+to plant, to implant, to fix, to found
+vineyard, vine
+and
+when, although, because, while
+namely
+to eat, to consume
+and
+to drink, to imbibe
+and
+to rejoice, PA to gladden, to congratulate
+and
+to exult, rejoice greatly; to flourish, thrive
+and
+not
+there is
+evil
+and
+not
+reflection, meditation
+her
+(relative)
+evil
+and
+not
+fear, dread, awe, worship, idol
+and
+shaking, quaking
+in
+heart
+them
+in
+that
+peace
+to open, to unlock, to admit
+gate, door, entrance
+the north wind, the north
+and
+to go out, to issue, to proceed forth
+strength, power, force
+(relative)
+people
+these
+(relative)
+to shut in, to besiege, ETHPE to shut oneself up, to be besieged
+to be
+there, yonder
+and
+to be in motion, to be agitated, AF to set in motion, to disturb, to excite, PAL to shake, ETHPAL to be greatly moved
+earth, land
+from
+before
+them
+and
+PE (ptc. pass. only), to hasten, ETHPE to be disquieted, to be afraid, AF to trouble, disquiet, to hasten, ESTAPH to make haste, to hasten, SAPH to hasten, impel, urge on, ESTAPH to make haste, hasten
+son
+man, human, mortal
+and
+to flee, to avoid
+and
+to break down, to refute, to ruin, ETHPE to be thrown down, ruin, PA to conceal, to cover, ETHPA to be concealed
+breath, animal soul
+them
+in
+mountain
+and
+in
+cave, den
+and
+in
+house
+burial
+and
+to die, AF to put to death
+from
+fear, dread, awe, worship, idol
+and
+from
+hunger, scarcity, famine
+and
+not
+there is
+(relative)
+to bury, PA to bury many, to heap up
+to
+them
+and
+to eat, to consume
+before
+father
+them
+when, although, because, while
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to
+them
+because of
+(relative)
+these
+people
+(relative)
+to go out, to issue, to proceed forth
+from
+the north wind, the north
+to eat, to consume
+flesh, body
+(relative)
+son
+man, human, mortal
+and
+to drink, to imbibe
+blood, bloodshed
+(relative)
+life, vitality, living creature
+and
+to eat, to consume
+creep
+her
+(relative)
+earth, land
+and
+mouse
+and
+snake, serpent
+and
+scorpion, Scorpio
+and
+whole
+him
+reptiles, vermin, insects, hoarseness, gangrene
+unclean, impure
+(relative)
+to creep, to move slowly
+upon, because
+earth, land
+and
+body, flesh, carcass
+(relative)
+life, vitality, living creature
+PA to pollute, ETHPA to be defiled
+and
+miscarry
+(relative)
+sheep, cattle, beasts
+and
+to slay, to slaughter, to offer sacrifice, PA to sacrifice
+infant, babe, suckling
+and
+to give
+to
+mother
+them
+and
+to be pressing, to straiten, to hem in ETPHE be straight, narrow, tormented (with illness, hunger, thirst)
+to
+them
+(relative)
+to eat, to consume
+body, flesh, carcass
+(relative)
+son
+them
+and
+to eat, to consume
+dog
+to die, AF to put to death
+and
+kitten
+and
+whole
+her
+defilement, abomination
+and
+to twist, to writhe, to travail, PA to travail, to falsify, to become corrupt, to destroy
+to
+her
+to
+earth, land
+and
+not
+there is
+(relative)
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+(relative)
+to arise APH raise up, place
+before
+them
+and
+from
+after, following
+one
+week
+(relative)
+distress, calamity, siege
+to gather together, to collect, PA to assemble, to call together
+whole
+them
+to
+plain, broad valley, level tract, expanse
+(relative)
+Joppe
+because of
+(relative)
+to
+there, yonder
+to gather together, to collect, PA to assemble, to call together
+whole
+them
+these
+people
+they
+and
+women
+them
+and
+son
+them
+and
+to
+there, yonder
+PA to send, to dismiss, ETHPA to be sent out, commissioned, to be thrown away
+god
+upon, because
+them
+one
+from
+great
+strength, power, force
+(relative)
+messenger, angel
+and
+to lay waste, to destroy
+to
+them
+in
+one
+hour, moment, time, season
+and
+then
+to descend, PA to bring down, AF to cause to come down
+king
+(relative)
+Greek
+and
+to sit, AF, to make dwell, to set, place
+in
+Jerusalem
+week
+one
+and
+half, part, section
+week
+in
+numbering, number, reckoning
+ten
+year
+and
+half, part
+her
+and
+then
+to uncover, PA to reveal, to lead or go into captivity
+male offspring
+him
+(relative)
+loss, perdition, destruction, ruin
+to besmear, to anoint, PA to measure, to proportion
+false, vain, deceitful
+this
+to conceive, to bear
+in
+Chorazin
+and
+to beget, to generate, ptc.f.emph de=JLDT>
+in
+Sidon
+and
+to counsel, to promise, to reign
+in
+Capernaum
+and
+PE only part.pass dim, SHAPH to glorify, ESHTAPH to boast
+in
+him
+Chorazin
+(relative)
+to beget, to generate, ptc.f.emph de=JLDT>
+in
+her
+and
+house
+Sidon
+(relative)
+to grow, to grow up, PA to bring up, to educate
+in
+her
+and
+Capernaum
+(relative)
+to counsel, to promise, to reign
+in
+her
+and
+because of
+this
+to
+three
+them
+to give
+lord
+us
+woe
+in
+gospel
+[possessive]
+him
+when, although, because, while
+to say
+(relative)
+ah, oh, woe, alas
+to
+you
+Chorazin
+ah, oh, woe, alas
+to
+you
+house
+game
+and
+you
+Capernaum
+that
+(relative)
+until, as far as, unto, so that
+to
+heaven, ceiling, roof, eaves
+to be high, ETHPE to go up, to be lifted up, PALP to lift up, ETHPALP to become great, PA to set on high, APH to raise
+until, as far as, unto, so that
+to
+Sheol, the pit, lower regions
+lower
+and
+immediately, at once
+(relative)
+to uncover, PA to reveal, to lead or go into captivity
+male offspring
+him
+(relative)
+loss, perdition, destruction, ruin
+then
+to go up,to ascend
+king
+(relative)
+Greek
+and
+to arise APH raise up, place
+upon, because
+Golgotha
+and
+to put, to lay up, to constitute
+cross
+pure, holy
+in
+that
+place
+(relative)
+to fasten
+in
+her
+when, although, because, while
+to carry
+him
+to
+to besmear, to anoint, PA to measure, to proportion
+and
+to put, to lay up, to constitute
+king
+(relative)
+Greek
+diadem, crown
+him
+in
+head, top, summit
+him
+(relative)
+cross
+pure, holy
+and
+to stretch out, to extend, to reach out
+to
+them
+to
+two
+them
+hand, side
+him
+to
+heaven, ceiling, roof, eaves
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+reign, kingdom, majesty
+to
+god
+father
+PA to raise, ETHPA to be raised, to be exalted, AF to lift up, to act perversely
+cross
+pure, holy
+that
+(relative)
+crucify
+upon, because
+him
+to besmear, to anoint, PA to measure, to proportion
+to
+heaven, ceiling, roof, eaves
+and
+crown, garland, mitre, turban
+reign, kingdom, majesty
+with
+him
+because of
+(relative)
+he
+cross
+pure, holy
+(relative)
+upon, because
+him
+crucify
+to besmear, to anoint, PA to measure, to proportion
+exchange
+redemption, ransom, salvation
+(relative)
+whole
+them
+son
+man, human, mortal
+(relative)
+to believe
+in
+him
+crucify
+that
+(relative)
+there is
+him
+ensign, sign, portent, aim, sense
+(relative)
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+before
+coming
+him
+(relative)
+lord
+us
+as, almost, about
+(relative)
+to
+shame, disgrace
+them
+(relative)
+unbeliever, denier, apostate
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+word, saying, thing, affair
+(relative)
+blessed
+David
+that
+(relative)
+PA to prophesy, ETHPA to prophesy, to behave as a prophet
+upon, because
+latter end, extremity
+(relative)
+time, age, era
+and
+to say
+(relative)
+Ethiopian
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+hand, side
+to
+god
+because of
+(relative)
+male offspring
+her
+(relative)
+Cushat
+daughter
+Pil
+king
+(relative)
+Ethiopian
+he
+there is
+him
+who, which, what
+(relative)
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+hand, side
+to
+god
+and
+immediately, at once
+(relative)
+PA to raise, ETHPA to be raised, to be exalted, AF to lift up, to act perversely
+cross
+pure, holy
+to
+heaven, ceiling, roof, eaves
+and
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+breath, animal soul
+him
+to
+creator
+him
+king
+(relative)
+Greek
+then
+to cease work, to come to an end, PA to cause to cease, to bring to an end
+whole
+head, top, summit
+and
+whole
+power, authority, right, rule, government, ruler, commander
+and
+whole
+might, strength, force
+and
+immediately, at once
+to uncover, PA to reveal, to lead or go into captivity
+male offspring
+him
+(relative)
+loss, perdition, destruction, ruin
+that
+(relative)
+there is
+him
+from
+rod, stripe, tribe
+(relative)
+Dan
+as, almost, about
+prophecy
+him
+(relative)
+Jacob
+(relative)
+PA to prophesy, ETHPA to prophesy, to behave as a prophet
+upon, because
+him
+and
+to say
+(relative)
+to be
+Dan
+snake, serpent
+a poisonous snake
+(relative)
+to recline, to drum, PA pss ptc four-sided, quadrangular
+upon, because
+way, road, custom
+(relative)
+PA to hand down, to transmit, AF to bring, to lead
+to
+reign, kingdom, majesty
+(relative)
+heaven, ceiling, roof, eaves
+then
+(relative)
+to bite, sting, ETHPE be bitten, stung, PA to sting sharply ETHPA to be bitten repeatedly
+to
+horse
+there is
+her
+word, saying, thing, affair
+(relative)
+in
+character
+(relative)
+righteousness, alms
+then
+(relative)
+throw down
+to
+horseman, mounted soldier
+him
+to
+the back
+him
+there is
+them
+pure, holy
+(relative)
+to incline, to be prone to, PA to pray, AF to reach out
+after, following
+erring, straying, misleading
+him
+foot, heel, hoof, footstep
+then
+end of a fixed period
+(relative)
+age, era, eternity
+and
+latter end, extremity
+(relative)
+year
+PA to show
+to
+us
+and
+those
+pure, holy
+(relative)
+to be
+in
+that
+time, age, era
+these
+(relative)
+to ride, AF to make ride, to set
+upon, because
+word, saying, thing, affair
+(relative)
+truth, right, justice
+(relative)
+to lie down flat, PA to humiliate
+and
+to be weary, to faint, PA to humble, bring low, ETHPA to be weary, to give oneself trouble, APH to bring low, humble, overpower, to be wearied out
+in
+labour, toil, pain, trouble
+(relative)
+righteousness, alms
+to bite, sting, ETHPE be bitten, stung, PA to sting sharply ETHPA to be bitten repeatedly
+to
+them
+in
+hand, side
+sign, token
+(relative)
+fantasy
+(relative)
+error, mistake, false worship
+[possessive]
+him
+(relative)
+to do, to make, to work
+and
+to run, to have free course, to be eager, AF to drive, to urge forward
+they
+after, following
+him
+(relative)
+misleading
+when, although, because, while
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+to
+leprosy
+(relative)
+to be clean, PA to cleanse, purify, ETHPA to be cleansed, purified
+and
+to
+be blind
+(relative)
+to open, to unlock, to admit
+and
+to
+to loosen, to dwell, to encamp, PA to begin, AF to call a halt, to cause to dwell
+(relative)
+PA to go, to walk
+and
+to
+devil
+(relative)
+to go out, to issue, to proceed forth
+and
+to
+sun
+(relative)
+to look, to gaze, to behold
+in
+him
+and
+to grow dark, PA to darken, ETHPA to be obscured, APH to turn to night, darken
+and
+to
+moon
+(relative)
+to visit, to command, to entreat, PA to give commission
+to
+him
+and
+to exchange, to pierce, PA to exchange, ETHPA to be exchanged, SHAPHEL to change, alter
+to
+blood, bloodshed
+and
+to
+tree, tree trunk
+(relative)
+to go out, to issue, to proceed forth
+fruit
+from
+bough, branch, twig
+them
+and
+to
+earth, land
+(relative)
+shoot, sprout, grow, APH to make grow, bring forth
+root, plant, shoot, origin, medicinal herb
+and
+to
+spring, source
+(relative)
+water
+(relative)
+to fail, to be lacking
+and
+in
+hand, side
+these
+sign, token
+(relative)
+fantasy
+to wander, to err, to go astray, to be missing
+to
+them
+to
+pure, holy
+because of
+this
+to say
+(relative)
+to bite, sting, ETHPE be bitten, stung, PA to sting sharply ETHPA to be bitten repeatedly
+to
+horse
+in
+foot, heel, hoof, footstep
+him
+whole
+however
+spot, mark, blemish
+(relative)
+to do, to make, to work
+in
+body, flesh, carcass
+in
+hand, side
+iron
+or, either
+in
+hand, side
+bite
+something, aught
+mark on the skin
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+in
+him
+whole
+what
+(relative)
+there is
+him
+in
+life
+thus, so, such
+even
+whole
+sin, fault
+(relative)
+to do, to make, to work
+in
+breath, animal soul
+fire
+and
+torment
+(relative)
+to
+age, era, eternity
+to guard, AF to put in a safe place
+to
+her
+in
+secret, ruin
+however
+side, see GNB
+(relative)
+left, left hand
+to know, ESHTAPH to know, to recognize, PA to inform, indicate, APH to make known, ETTAPH to be made known, announced
+and
+when, although, because, while
+in
+eye
+(relative)
+breath, wind, spirit
+to look, to gaze, to behold
+blessed
+Jacob
+and
+to see, to perceive, to consider, ETHPE to be seen, ETHPEAU to obtain honour, to distinguish oneself
+him
+to
+that
+distress, calamity, siege
+(relative)
+to be
+in
+that
+time, age, era
+and
+to say
+thus, so, such
+(relative)
+to
+redemption, ransom, salvation
+you
+PA to wait for, to look for, to expect
+THE LORD
+and
+lord
+us
+again, back
+to say
+(relative)
+if, O!
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+adversary
+even
+to
+to choose
+to wander, to err, to go astray, to be missing
+to enter, AF to bring in, to carry in
+however
+he
+this
+male offspring
+loss, perdition, destruction, ruin
+to
+Jerusalem
+and
+to sit, AF, to make dwell, to set, place
+in
+palace, temple
+(relative)
+god
+and
+to do, to make, to work
+breath, animal soul
+him
+as, almost, about
+god
+there is
+him
+however
+this
+male offspring
+man, human, mortal
+(relative)
+sin
+embody
+from
+seed, offspring
+man
+and
+to beget, to generate, ptc.f.emph de=JLDT>
+from
+join
+from
+rod, stripe, tribe
+him
+(relative)
+Dan
+this
+then
+birth, bringing forth, offspring
+(relative)
+loss, perdition, destruction, ruin
+in
+hand, side
+bitterness
+natural disposition, inclination
+him
+to wander, to err, to go astray, to be missing
+to
+whole
+if, O!
+to find, to happen, to attain, to be able, ETHPE to be found, be present, exist, happen
+in
+hand, side
+(relative)
+to do, to make, to work
+house
+dwelling, abode
+to
+whole
+them
+devil
+and
+whole
+her
+operation
+them
+in
+him
+to finish, to accomplish, PA to make perfect, to bring to an end
+and
+in
+coming
+him
+(relative)
+lord
+us
+(relative)
+from
+heaven, ceiling, roof, eaves
+to be complete, to come to an end, to agree to, to yield, to surrender, PA to make an end, to deliver up, to hand over, AF to bring to completion, to give up, to surrender
+to
+Gehenna, hell
+(relative)
+fire
+and
+to
+darkness
+outer, distant, extraneous
+and
+there, yonder
+to be
+in
+weeping
+and
+in
+gnash the teeth
+(relative)
+tooth
+with
+whole
+them
+who, which, what
+(relative)
+to believe
+in
+him
+and
+to
+us
+then
+to be even, equal, sufficient, to be worth, ETHPE to be equal, PA to lay even, to wipe, to treat as equal, to agree, ETHPA to be laid low, to agree, APH to level, make even
+lord
+us
+Jesus, Joshua
+to besmear, to anoint, PA to measure, to proportion
+to
+reign, kingdom, majesty
+[possessive]
+him
+heavenly
+with
+whole
+them
+to do, to make, to work
+will, desire
+him
+and
+to go up,to ascend
+praise
+and
+honour, glory
+and
+worship, veneration, temple
+and
+exaltation
+this hour
+and
+in
+whole
+time, age, era
+to
+age, era, eternity
+age, era, eternity
+amen, verily

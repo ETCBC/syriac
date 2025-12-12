@@ -6,11 +6,12 @@
 @valueType=str
 @version=0.3
 @writtenBy=Text-Fabric
-@dateWritten=2025-12-12T11:42:11+00:00Z
+@dateWritten=2025-12-12T12:36:59+00:00Z
 
-204160	Genesis
+238610	Genesis
 Exodus
 Deuteronomy
+Joshua
 Judges
 Psalms
 1_Kings
@@ -18,6 +19,7 @@ Psalms
 EpBarA
 EpBarB
 Jonah
+Daniel
 Sir
 OrManA
 OrManB
@@ -25,3 +27,4 @@ PsH
 BLC
 Eprx
 ESNJ
+PsM
