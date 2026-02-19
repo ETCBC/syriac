@@ -8,10 +8,10 @@ This is the Text-Fabric dataset of the ETCBC database of Syriac literature. It i
 Version 0.4 of the dataset is based on the following texts:
 - Peshitta: Genesis, Exodus, Deuteronomy, Joshua, Judges, 1 and 2 Kings, Jonah, Psalms 1-30, Daniel, Sirach.
 - Syrohexapla: Psalms 1–32
-- The Book of the Laws of the Countries
+- Bardaisan, The Book of the Laws of the Countries
 - Oratio Manasseh, Prayer of Manasseh (versions A and B)
 - Epistle of Baruch (versions A and B)
-- Ephrem's Prose Refutation X
+- Ephrem's Prose Refutation against Mani
 - Ephrem’s Sermon on the Ninevites
 - Pseudo-Methodius
 - The Apocalypse of Pseudo-Ezra
