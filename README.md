@@ -11,7 +11,8 @@ Version 0.4 of the dataset is based on the following texts:
 - The Book of the Laws of the Countries
 - Oratio Manasseh, Prayer of Manasseh (versions A and B)
 - Epistle of Baruch (versions A and B)
-- Ephrem, Ephrem’s Sermon on the Ninevites
+- Ephrem's Prose Refutation X
+- Ephrem’s Sermon on the Ninevites
 - Pseudo-Methodius
 - The Apocalypse of Pseudo-Ezra
 
@@ -37,3 +38,11 @@ The following people contributed to the dataset:
 - Constantijn Sikkel
 - Umut Var
 - Geert Jan Veldman
+
+The texts are based on the following editions, we thank the editors for their permission to use them in our dataset.
+
+For the Peshitta, the text is taken from [Vetus Testamentum Syriace](https://brill.com/display/serial/PES) prepared by the Peshitta Institute Amsterdam (formerly Leiden), also electronically integrated in the [Brill Scholarly editions](https://scholarlyeditions.brill.com/peso/). Our text does not include the critical apparatus. The text of Ben Sira is a preliminary version. The official edition is in preparation.
+The Book of the Laws of the Countries was prepared by Dirk Bakker on the basis of [Drijvers' edition](https://archive.org/details/bookoflawsofcoun0000bard/) as part of his [PhD project](https://scholarlypublications.universiteitleiden.nl/handle/1887/17580) (2006–2010).
+The text of the sermon of Ephrem the Syrian on Nineveh and Jonah was prepared by Constantijn Sikkel ang Geert-Jan Veldman. It is based on the running text in Des heiligen Ephraem des Syrers Sermones II (Corpus scriptorum Christianorum Orientalium 311 = Scriptores Syri 134), with application of Beck's emendations introduced by "Lege", "Corrige", or "Omitte", provided that they are based on a manuscript.
+The text of Pseudo-Methodius is based on the edition by Reinink (Corpus scriptorum Christianorum Orientalium).
+We used a slightly corrected version of the text of The Apocalypse of Pseudo-Ezra that was prepared by Laura Locke Estes for her [MA Thesis](https://digitalcommons.acu.edu/etd/41/).
