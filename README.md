@@ -20,11 +20,11 @@ Version 0.4 of the dataset is based on the following texts:
 All the text features are based on the ETCBC transcription. The dataset contains a representation of the consonantal text in Estrangela script as well (feature g_cons_utf8).
 The texts are annotated with the following word level features:
 
-**g_cons**: the text of a word in ETCBC transcription
-**g_cons_utf8**: the text of a word in estrangela script
-**lex**: lexeme in ETCBC transcription
-**gloss**: English gloss
-**sp**: part of speech
+**g_cons**: the text of a word in ETCBC transcription  
+**g_cons_utf8**: the text of a word in estrangela script  
+**lex**: lexeme in ETCBC transcription  
+**gloss**: English gloss  
+**sp**: part of speech  
 **vs**: verbal stem
 **vt**: verbal tense
 **ps**: person
