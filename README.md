@@ -18,9 +18,43 @@ Version 0.4 of the dataset is based on the following texts:
 
 ## Features
 All the text features are based on the ETCBC transcription. The dataset contains a representation of the consonantal text in Estrangela script as well (feature g_cons_utf8).
-The dataset will be expanded with new texts and new features in the course of the following years.
+The texts are annotated with the following word level features:
 
-The dataset contains word level features and is work in progress.
+**g_cons**: the text of a word in ETCBC transcription
+**g_cons_utf8**: the text of a word in estrangela script
+**lex**: lexeme in ETCBC transcription
+**gloss**: English gloss
+**sp**: part of speech
+**vs**: verbal stem
+**vt**: verbal tense
+**ps**: person
+**gn**: gender
+**nu**: number
+**vo**: voice
+**st**: state
+**ls**: lexical set of a word
+**trailer**: comes after a word, can be empty space or None
+**vpm**: vowel pattern marker
+
+morphemes
+**g_lex**: Realization of the lexeme in ETCBC transcription
+**g_emf**: Realized form of the emphatic state morpheme
+**emf**: Paradigmatic form of the emphatic state morpheme
+**g_nme**: Realized form of the nominal ending morpheme
+**nme**: Paradigmatic form of the nominal ending morpheme
+**g_pfm**: Realized form of the preformative morpheme
+**pfm**: Paradigmatic form of the preformative morpheme
+**g_pfx**: Realized form of the passive prefix morpheme
+**pfx**: Paradigmatic form of the passive prefix morpheme
+**g_vbe**: Realized form of the verbal stem morpheme
+**vbe**: Paradigmatic form of the verbal stem morpheme
+**g_vbs**: Realized form of the verbal stem morpheme
+**vbs**: Paradigmatic form of the verbal stem morpheme
+
+And finally, of course:
+**book**, **chapter** and **verse**.
+
+The dataset is work in progress.
 
 ## Acknowledgements
 The following people contributed to the dataset:
