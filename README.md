@@ -5,7 +5,7 @@
 This is the Text-Fabric dataset of the ETCBC database of Syriac literature. It is the result of a collaboration of the [**ETCBC**](https://etcbc.nl) and the [**CACCHT**](https://github.com/CACCHT) project (Creating Annotated Corpora of Classical Hebrew Texts).
 
 ## Texts
-Version 0.4 of the dataset is based on the following texts:
+Version 0.5 of the dataset (based on morphologically parsed file s7-out) is based on the following texts:
 - Peshitta: Genesis, Exodus, Leviticus, Deuteronomy, Joshua, Judges, 1 and 2 Kings, Jonah, Psalms 1-30, Daniel, Sirach.
 - Syrohexapla: Psalms 1–32
 - Bardaisan, The Book of the Laws of the Countries
