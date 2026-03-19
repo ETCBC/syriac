@@ -15,8 +15,8 @@ Version 0.6 of the dataset (based on the morphologically parsed file s8-out) is 
     - Judges
     - 1 and 2 Kings
     - Psalms 1-30
-    - Sirach.
-    - Ezekiel 1-16
+    - Sirach
+    - Ezekiel 1-26
     - Daniel
     - Jonah
 - Syrohexapla: Psalms 1–32
