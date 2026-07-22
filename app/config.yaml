@@ -13,7 +13,7 @@ docs:
 interfaceDefaults: {}
 provenanceSpec:
   corpus: The ETCBC Syriac Corpus
-  version: '0.7'
+  version: '0.8'
 writing: hbo
 typeDisplay:
   verse:
