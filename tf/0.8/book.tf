@@ -6,9 +6,23 @@
 @valueType=str
 @version=0.8
 @writtenBy=Text-Fabric
-@dateWritten=2026-07-22T18:18:53+00:00Z
+@dateWritten=2026-07-22T18:36:55+00:00Z
 
-104732	Zechariah
+326701	Genesis
+Exodus
+Leviticus
+Deuteronomy
+Joshua
+Judges
+Psalms
+1_Kings
+2_Kings
+EpBarA
+EpBarB
+Jeremiah
+Ezekiel
+Jonah
+Zechariah
 Daniel
 Sir
 4Esr

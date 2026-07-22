@@ -5,9 +5,9 @@
 @valueType=str
 @version=0.8
 @writtenBy=Text-Fabric
-@dateWritten=2026-07-22T18:18:54+00:00Z
+@dateWritten=2026-07-22T18:37:01+00:00Z
 
-1-104731	word
-104732-104745	book
-104746-105017	chapter
-105018-110055	verse
+1-326700	word
+326701-326728	book
+326729-327356	chapter
+327357-341967	verse
