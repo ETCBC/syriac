@@ -5,25 +5,26 @@
 This is the Text-Fabric dataset of the ETCBC database of Syriac literature. It is the result of a collaboration of the [**ETCBC**](https://etcbc.nl) and the [**CACCHT**](https://github.com/CACCHT) project (Creating Annotated Corpora of Classical Hebrew Texts).
 
 ## Texts
-Version 0.8 of the dataset (based on the morphologically parsed file s10-out) is based on the following texts:
+Version 0.9 of the dataset (based on the morphologically parsed file s11-out) is based on the following texts:
 - Peshitta 
     - Genesis 
     - Exodus 
-    - Leviticus 
+    - Leviticus
+    - Numbers 1-25
     - Deuteronomy 
     - Joshua 
     - Judges
-    - 1 Samuel
-    - 1 and 2 Kings
     - Psalms 1-30
-    - Jeremiah 1-10
+    - 1 and 2 Kings
+    - Jeremiah 1-33
     - Ezekiel
-    - Daniel
     - Jonah
     - Zechariah
+    - Daniel
     - Sirach
+    - 4 Esdras
 - Syrohexapla: Psalms 1–32
-- Bardaisan, The Book of the Laws of the Countries
+- The Book of the Laws of the Countries
 - Oratio Manasseh, Prayer of Manasseh (versions A and B)
 - Epistle of Baruch (versions A and B)
 - Ephrem's Prose Refutation against Mani
