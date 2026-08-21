@@ -1,5 +1,5 @@
 <img src="images/caccht-logo.png" alt="CACCHT logo" height="200">
-<img src="images/etcbc.png" alt="CACCHT logo" height="200">
+<img src="images/etcbc.png" alt="CACCHT logo" height="150">
 
 [![DOI](https://zenodo.org/badge/DOI/10.5281/zenodo.16966129.svg)](https://doi.org/10.5281/zenodo.16966129)
 
