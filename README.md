@@ -76,6 +76,16 @@ And finally, of course:
 
 The dataset is work in progress.
 
+## License
+
+This work is licensed under a
+[Attribution-NonCommercial 4.0 International (CC BY-NC 4.0)](https://creativecommons.org/licenses/by-nc/4.0/).
+That means:
+
+* You may download the data and use it: process, copy, modify;
+* You may use the data to create new software applications;
+* You may use the data for research and publish any amount of results;
+
 ## Acknowledgements
 The following people contributed to the dataset:
 - Dirk Bakker
