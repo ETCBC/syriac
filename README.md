@@ -25,6 +25,7 @@ Version 0.91 of the dataset (based on the morphologically parsed file s12-out) i
     - Zechariah
     - Daniel
     - Sirach
+    - 3 Esdras
     - 4 Esdras
 - Syrohexapla: Psalms 1–32
 - The Book of the Laws of the Countries
@@ -34,6 +35,8 @@ Version 0.91 of the dataset (based on the morphologically parsed file s12-out) i
 - Ephrem’s Sermon on the Ninevites
 - Pseudo-Methodius
 - The Apocalypse of Pseudo-Ezra
+- The Apocalypse of Daniel
+- The Apocalypse of Baruch
 
 ## Features
 All the text features are based on the ETCBC transcription. The dataset contains a representation of the consonantal text in Estrangela script as well.
