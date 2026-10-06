@@ -8,18 +8,18 @@
 This is the Text-Fabric dataset of the ETCBC database of Syriac literature. It is the result of a collaboration of the [**ETCBC**](https://etcbc.nl) and the [**CACCHT**](https://github.com/CACCHT) project (Creating Annotated Corpora of Classical Hebrew Texts).
 
 ## Texts
-Version 0.9 of the dataset (based on the morphologically parsed file s11-out) is based on the following texts:
+Version 0.91 of the dataset (based on the morphologically parsed file s12-out) is based on the following texts:
 - Peshitta 
     - Genesis 
     - Exodus 
     - Leviticus
-    - Numbers 1-25
+    - Numbers
     - Deuteronomy 
     - Joshua 
     - Judges
     - Psalms 1-30
     - 1 and 2 Kings
-    - Jeremiah 1-33
+    - Jeremiah
     - Ezekiel
     - Jonah
     - Zechariah
