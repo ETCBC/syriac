@@ -28,6 +28,7 @@ Version 0.91 of the dataset (based on the morphologically parsed file s12-out) i
     - 3 Esdras
     - 4 Esdras
 - Syrohexapla: Psalms 1–32
+- The Psalms of Solomon
 - The Book of the Laws of the Countries
 - Oratio Manasseh, Prayer of Manasseh (versions A and B)
 - Epistle of Baruch (versions A and B)
